@@ -280,6 +280,140 @@ Library books due:
 
 ## 2015-09-02
 
+Library books due:
+
 * Stardust melody : the life and music of Hoagy Carmichael
 * Stephen Foster and the rise of American popular culture
+
+
+## 2015-12-10
+
+Library books due:
+
+* The new Sammy Cahn songbook
+* The great songs of Harry Warren : from 42nd Street to Hollywood
+
+
+## 2015-12-31
+
+Library books due:
+
+* Cole Porter, a musical anthology
+* The great songs of George Gershwin
+
+
+## 2016-04-21
+
+Library books due:
+
+* Carnival! : vocal selection
+* 110 in the shade. vocal selection
+* Vocal selections from The unsinkable Molly Brown
+* The boy friend : song album
+* Vocal selections from Kismet
+* Songs of Burke and Van Heusen
+* Vocal selections from Walking happy
+* Les miserables : the musical sensation
+* Vocal selections from Annie
+* Songs from Walt Disney's Mary Poppins
+* Willy Wonka & the chocolate factory : piano, vocal, guitar
+* Vocal selections from Peter Pan : Broadway's musical hit!
+* Vocal selections from Oliver!
+* The fantasticks : vocal selection
+
+
+## 2016-06-23
+
+Library books due:
+
+* An anthology of piano music
+* Gymnopedies, Gnossiennes, and other works for piano
+* Forty French hits of our times.
+* Opera at the piano : 74 selections from 44 operas, transcribed for interme
+
+
+## 2016-07-06
+
+Library books due:
+
+* Les grands succes d'Edith Piaf.
+* World Charts presents The French songbook ; songs the French people love
+* Edith Piaf memorial album : twenty-two internationally famous selections
+
+## 2016-10-18
+
+Library books due:
+
+* The sound of Broadway music : a book of orchestrators and orchestrations
+
+
+## 2016-12-08
+
+Library books due:
+
+* The best of the Capitol years
+
+## 2016-12-10
+
+Library books due:
+
+* Frank Sinatra anthology. Volume 2
+
+
+## 2017-01-09
+
+Library books due:
+
+* One night only : the greatest hits
+* The best of Billy Joel
+* Anthology
+
+
+## 2017-02-27
+
+Library books due:
+
+* Damn Yankees : a musical comedy
+* The pajama game : a musical comedy
+* In the Heights
+
+
+## 2017-03-09
+
+Library books due:
+
+* Rent : vocal selections
+* Willy Wonka & the chocolate factory : piano, vocal, guitar
+* Vocal selections from Peter Pan : Broadway's musical hit!
+* The boy friend : song album
+* Vocal selections from the most happy fella
+* Purlie
+* Vocal selections from Promises, promises
+* Vocal selections from Annie
+* Vocal selections from The yearling
+
+## 2017-03-12
+
+Library books due:
+
+* Grand Hotel : the musical
+* Vocal selections from Here's love
+* On becoming a rock musician
+* The Wrecking Crew : the inside story of rock and roll's best kept secret
+* Let's talk about love : why other people have such bad taste
+* Dames at sea : vocal selections
+* Raisin
+
+## 2017-03-18
+
+Library books due:
+
+* Vocal selections from The apple tree
+* Vocal selections from the Broadway musical How now, Dow Jones
+* Vocal selections from "Little me"
+* Sweet Charity : the musical comedy
+* Vocal selections from Tenderloin
+* Oscar Brown Jr.'s Joy : a musical come-together
+
+
 
