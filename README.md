@@ -416,4 +416,73 @@ Library books due:
 * Oscar Brown Jr.'s Joy : a musical come-together
 
 
+## 2017-03-20
+
+Library books due:
+
+* Damn Yankees : a musical comedy
+* The pajama game : a musical comedy
+* In the Heights
+
+## 2017-05-17
+
+Library books due:
+
+* Vocal selections from The unsinkable Molly Brown
+* Vocal selections from It's a bird, it's a plane, it's Superman
+* 110 in the shade. vocal selection
+* Vocal selections from Hot spot
+* No strings : vocal selection
+* Vocal selections from Mame.
+* Fanny : vocal selection
+* Vocal selections from Li'l Abner
+* You're a good man, Charlie Brown
+* Chicago : the musical : vocal selections
+
+
+## 2017-05-31
+
+Library books due:
+
+* Carnival!
+* Vocal selections from High spirits
+* Vocal selections from 1776
+* Vocal selections from Brigadoon
+* Don't bother me, I can't cope
+* Baker Street : a musical adventure of Sherlock Holmes
+* Leave it to Jane : vocal selection
+
+
+## 2017-06-08
+
+Library books due:
+
+* More great super stars of today
+* Pick of platinum rock gems.
+* 101 most popular songs of the rock era
+* The best of the seventies : complete words and music : 80 great songs of t
+* Highlights of the 70's & 80's : complete original sheet music editions
+* Highlights of the 60's & 70's : complete original sheet music editions
+* Vocal selections from Li'l Abner
+* Miami vice ; + Freedom : (plus other top recorded hits) ; piano, vocal, gu
+* 70's & 80's showstoppers : piano/vocal/chords
+* Best of the seventies : all no. 1 hits.
+* New 80's gold update
+* Greatest songs of our time : sixty-three golden hits.
+* Great superstars of today :  voice, piano, guitar.
+
+
+## 2017-07-12
+
+Library books due:
+
+* Pet Shop Boys discography : the words and music of the complete singles co
+* The umbrellas of Cherbourg : vocal selections
+* Tommy : rock opera
+* Mondo cane : musical score
+* The best of Blood, Sweat and Tears.
+* Seven brides for seven brothers : musical selections : piano, vocal, chord
+* Songs recorded by Elvis Presley
+* Vocal selections from Jamaica
+* Gold : greatest hits
 
