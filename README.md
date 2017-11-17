@@ -232,6 +232,10 @@ And I ordered the Rodgers & Hart and 100 Best Songs books Sep 15, 2014, so I pro
 Fort Mason book sale where I got the Army-Navy Hit Kits was September 24-28, 2014. Looks like I was there 2014-09-27 14:46:55
 
 
+## 2014-10-04
+
+Moving on now from 60-year-old pop songs on the piano to 40-year-old material from King Crimson at the Warfield
+
 ## 2014-11-08
 
 Today's fake book discovery: British music publishers had a notation for chord+bass decades before US. "Adim on B" in Alice Blue Gown (1920)
@@ -591,6 +595,10 @@ I'm doing so much better in the past few days. In particular "I'd be lost withou
 
 Not everything: I barely made it through "Broadway Rhythm" last night and "I wished on the moon" tonight. But competence is in sight.
 
+## 2015-10-18
+
+A weird Taylorist efficiency to these 1950s piano arrangements I like so much. No unnecessary motions. Maximum musicality per note played.
+
 ## 2015-10-27
 
 Maybe this should be the day that I declare competence. Not perfect by any means, but I am really hitting it.
@@ -737,6 +745,135 @@ I think that is 628 songs in the month, plus whatever misc I forgot about.
 
 It is terrible to be so close to being good and yet to still be so bad.
 
+## 2016-02-08
+
+Friday night tried to play the Harold Arlen folio from SF Public Library and was just terrible.
+
+But was cranking all day Saturday and Sunday, and together with tonight replayed all of volume 7 of the Armed Forces Song Folio:
+
+* 136  Armed Forces Song Folio Vol 7
+
+## 2016-02-15
+
+And this weekend:
+
+* 136 Armed Forces Song Folio Vol 5
+
+## 2016-02-21
+
+I am getting to be half decent at Ab. "Baubles, Bangles, and Bows" just now.
+
+And Cole Porter's "So In Love," so maybe Ab really does work.
+
+## 2016-02-25
+
+I am doing pretty well in general, but "Talk to Me" (from Armed Forces Song Folio) is interestingly tricky. It is full of triplets, so the parts that aren't triplets I keep wanting to swing like crazy, like it's a 12/8 march or something.
+
+## 2016-02-27
+
+"A lot of livin' to do:" I can play the notes, but the bass rhythm is impossible, even in isolation.
+
+* ONE two three four FIVE six SEVEN eight
+* one TWO three four FIVE six SEVEN eight
+
+The transgression that rock committed was telling the world that they could rest on one.
+
+* 134? Armed Forces Song Folio #8
+
+minus the Peter Gunn instrumental and some blues with a zillion accidentals that were just beyond me to make it through
+
+Took a week instead of a weekend this time since I got sick
+
+## 2016-02-27
+
+* 9 On A Clear Day You Can See Forever folio
+
+## 2016-02-29
+
+* 80? The Definitive Jazz Collection (88 minus the Jobim ones and maybe another one or two)
+* 92 Keep stack
+* 6 more Donald Vaughan
+* 8 Beatlemania #1
+
+So that's 601 songs played in February. All put away now to try to keep the months better separated.
+
+## 2016-03-03
+
+For song-to-time scaling, last night timed how long it took to play some songs:
+
+* 5 24:43
+* 1 05:40
+* 4 18:09
+
+So that's 291 seconds per song, 4:51
+
+## 2016-03-12
+
+Slow start this month!
+
+* 136 Armed Forces Song Folio #9
+
+## 2016-03-13
+
+Banged my way through Beethoven's 5th Symphony twice tonight. It was terrible, but I could make it through, unlike when I downloaded it Feb 2nd.
+
+Getting reasonably comfortable with 4 flats. Better with 2 sharps than before but still screw it up all the time.
+
+## 2016-03-16
+
+* 29   Gem Dance Folio for 1941
+
+(Except Lovely Lagoon, which is too hard)
+
+## 2016-03-20
+
+Feeling pretty good about myself! After
+
+* 35 Summer of '42
+* 56 Armed Forces Song Folio Mar 1962 - Aug 1962, Dec 1962
+* 91 loose sheets (still on piano, sideways)
+
+## 2016-03-21
+
+I finally made it through "I Left My Heart in San Francisco!" A disaster, but I didn't get scared off.
+
+## 2016-03-26
+
+Baby Doll by Kenyon Hopkins (Song Folio Jan 1957) has an interestingly difficult ostinato an octave up. Getting better at it but still clunky.
+
+## 2016-03-27
+
+* 160 Armed Forces Song Folio
+
+(T, Jan-Mar-Jul 51, Jan-Feb-Mar-Apr-Jun-Sep-Oct-Dec 56, Jan-Apr-May-Jun 57, Jan-Feb-Mar-May 63)
+
+## 2016-03-31
+
+* 47 loose sheets
+* 19 Mister Rogers' Songbook (but short, so call it 10?)
+
+Which makes 564 songs played in March
+
+## 2016-04-03
+
+April! and back from the library with a bunch of musicals
+
+* 15 Songs from Walt Disney's Mary Poppins
+* 8 "110 in the Shade" Vocal Selection
+* 7 Les Misérables piano/vocal (because the rest are too hard)
+* 7 The Boy Friend Song Album
+* 10 Carnival! vocal selections
+
+## 2016-04-11
+
+# 136 Armed Forces Song Folio #2
+# 32 Dec '57, Oct '57, Sep '57, Jul '57
+# 7 The Fantasticks
+# 8 Peter Pan
+# 12 Songs of Burke and Van Heusen
+# 9 Walking Happy
+
+
 
 ## 2016-04-21
 
@@ -756,6 +893,95 @@ Library books due:
 * Vocal selections from Peter Pan : Broadway's musical hit!
 * Vocal selections from Oliver!
 * The fantasticks : vocal selection
+
+## 2016-04-25
+
+* 25 Shapiro and Bernstein one-a-year folio that starts with half a page of The Gaby Glide
+* 46 loose sheets (still on the piano, sideways)
+* 120 "keep" loose sheets
+
+I was feeling pretty good about myself, but this weekend I've been clumsy again.
+
+## 2016-05-01
+
+* 84 Armed Forces Song Folio #3 (2, 3, 6, 7, 8, 9, 1950: 12 each)
+* 11 loose sheets
+
+So that's 527 songs in April
+
+## 2016-05-08
+
+May so far:
+
+* 106 loose sheets
+* 15 Round Up Memories folio
+
+## 2016-05-22
+
+* 19 Feist 1943 Song Folio
+* 11 Robbins Hollywood Song Folio #4
+* 12 Paramount Song Folio #8
+* 25 Crawford Song Album #2
+* 30 Gem Dance Folio for 1941
+* 26 Gem Dance Folio for 1936
+* 30 Gem Dance Folio for 1945
+* 30 Gem Dance Folio for 1942
+* 30 Gem Dance Folio for 1943
+* 26 Gem Dance Folio for 1937
+* 15 loose sheets
+
+## 2016-05-27
+
+* 10 Bing Crosby Song Folio
+* 12 Paramount Song Folio #9
+* 10 Morris-Mayfair Song Folio #2
+* 12 BVC Song Folio #6
+* 25 Album of New Radio Favorites #15
+
+Oh and
+
+* 18 the start of Feist Dance Folio #4
+
+## 2016-05-31
+
+* 45 loose sheets
+* 15 Design for Music
+* 33 Judy Canova's Popular Mountain Songs
+
+So that's 555 songs in May.
+
+I was good yesterday morning, and then I was bad again by last night, and I'm sort of OK now. I wish I understood what makes me so uneven. Sometimes I feel like I've really got it, but it doesn't last.
+
+## 2016-06-05
+
+June!
+
+* 22 Lennon and McCartney: A Retrospective
+* 4 loose sheets
+* 29 Gem Dance Folio for 1924
+* 5 Armed Forces Song Folio Dec 1963
+* 6 Armed Forces Song Folio Aug 1964
+* 2 Captain Spaulding/Hello I must be going
+* 15 Hollywood Song Folio #5
+* 10 Robbins All Time Hit Parade
+* 20 Hollywood Song Folio #3
+* 10+ runs through Ev'ryone Says I Love You
+
+## 2016-06-07
+
+And let this be remembered as the weekend when I found out that I really could play Mozart and the Beatles, at least if they didn't use too many sharps.
+
+(16th notes are still awkward, though, and the backbeat still doesn't come naturally to me, especially under triplets.)
+
+## 2016-06-09
+
+The early-baroque stuff makes me feel amazingly competent because harmonic and rhythmic and melodic structure hadn't been invented yet. Two basically-unrelated noodly melody lines going at the same time in even rhythms? Sure, I can read that!
+
+* 66 The Complete Beatles Volume 1 (skipping over the other songs with more than 3 sharps)
+
+## 2016-06-21
+
+Type all day, piano all night, ache all morning
 
 
 ## 2016-06-23
@@ -780,6 +1006,11 @@ Library books due:
 ## 2016-07-10
 
 Why do synth keyboards tend to run from C to C, anyway? G to G seems like it would give better coverage of what keyboard music usually needs
+
+
+## 2016-10-11
+
+If there's anything I've learned from YouTube piano videos, it's that no one ever plays the original, published arrangement of anything
 
 ## 2016-10-18
 
