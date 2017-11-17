@@ -84,6 +84,10 @@ Library books due:
 
 * The great composers fakebook
 
+## 2014-01-26
+
+My new year's resolution should have been to play B chords over and over until I finally learn to hit the F# with my left hand instead of F.
+
 
 ## 2014-02-16
 
@@ -415,7 +419,8 @@ Sight-reading through "A Gal in Calico" just now really makes me think, I can do
 
 This would have been an insanely expensive way to learn before the current era of cheap bulk used eBay sheet music.
 
-Shaky adequacy was May 7, https://twitter.com/enf/status/596526833442562049
+It looks like I had to sight-read about 1900 melodies to get from being a by-ear-plus-chords pianist to being a decent fake-book pianist…
+and about another 900 songs to get to my current shaky adequacy at reading full pop piano arrangements.
 
 
 
@@ -445,6 +450,10 @@ Library books due:
 Library books due:
 
 * 40 golden songs of Bacharach & David
+
+## 2015-06-09
+
+Piano hacks: "bell," "toy piano," arpeggio to fake chords bigger than your hand, chromatic chord shifts independent of key. Any others?
 
 ## 2015-06-20
 
