@@ -866,12 +866,12 @@ April! and back from the library with a bunch of musicals
 
 ## 2016-04-11
 
-# 136 Armed Forces Song Folio #2
-# 32 Dec '57, Oct '57, Sep '57, Jul '57
-# 7 The Fantasticks
-# 8 Peter Pan
-# 12 Songs of Burke and Van Heusen
-# 9 Walking Happy
+* 136 Armed Forces Song Folio #2
+* 32 Dec '57, Oct '57, Sep '57, Jul '57
+* 7 The Fantasticks
+* 8 Peter Pan
+* 12 Songs of Burke and Van Heusen
+* 9 Walking Happy
 
 
 
