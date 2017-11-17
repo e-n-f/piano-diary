@@ -1,10 +1,6 @@
 piano-diary
 ===========
 
-## 2011-11-18
-
-Piano, not terribly well. (I can play songs that I know by ear and chords, but am very slow at actually reading music.)
-
 ## 2013-09-09
 
 We just ordered a Yamaha upright piano. It feels like kind of a crazy indulgence, but they do play a lot nicer than the 15-year-old synth that I have now.
