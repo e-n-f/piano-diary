@@ -507,8 +507,8 @@ but there was a lot of stuff that I just *knew* without having to think about it
 
 This is with about 5" of additional songs played (plus folios, duplicates etc.), which means 333 or so on top of the previously accounted "shaky adequacy" playing:
 
-13" of fake book reading (~867) + army navy hit hit (~1000)
-14" of full arrangements (~933)
+* 13" of fake book reading (~867) + army navy hit hit (~1000)
+* 14" of full arrangements (~933)
 
 "Second Fiddle" is the smoothest-playing country thing ever. "Rags to Riches" has a really weird bridge that feels like an unrelated song.
 
@@ -975,6 +975,10 @@ The early-baroque stuff makes me feel amazingly competent because harmonic and r
 
 * 66 The Complete Beatles Volume 1 (skipping over the other songs with more than 3 sharps)
 
+## 2016-06-19
+
+Quanno Staje Cu Mme' (in 45 Hits Of Our Times from Italy) was kind of a remarkable feeling: I was just plowing through the chorus, triplets and 16th notes and all, as if it was completely natural. It's kind of the same song as What A Difference A Day Made so maybe it helps to start with a sense of what it's going to do.
+
 ## 2016-06-21
 
 Type all day, piano all night, ache all morning
@@ -988,6 +992,26 @@ Library books due:
 * Gymnopedies, Gnossiennes, and other works for piano
 * Forty French hits of our times.
 * Opera at the piano : 74 selections from 44 operas, transcribed for interme
+
+## 2016-07-01
+
+* 9 loose sheets
+* 156 loose sheets
+* 1 Beethoven's 5th symphony
+* 19 Sesame Street Songbook #1
+* 45 45 Hits of Our Time from Italy
+* 24 Leeds Juke Box Parade
+* 22 loose sheets
+* 8 Guys and Dolls Vocal Selections
+* 40 40 French Hits Of Our Time
+* 34 34 Hit Parade Extras: Broadway Shows
+* 61 100 Greatest Hits of the 60s and 70s (through p.195)
+* 10 Mozart: his greatest piano solos (p.57)
+* 40 The Baroque Period (p.78)
+
+So 658 songs played in June!
+
+Oh, plus a few runs through whatever in Hamilton is somewhat playable. Mostly You'll Be Back.
 
 
 ## 2016-07-06
@@ -1003,16 +1027,165 @@ Library books due:
 
 Why do synth keyboards tend to run from C to C, anyway? G to G seems like it would give better coverage of what keyboard music usually needs
 
+July!
+
+* 20 World Charts Presents the French Songbook
+* 50 Lullaby of Broadway and 49 Harry Warren Movie Showstoppers
+* 75 loose sheets
+
+Still alternating between feeling good and feeling clumsy. Still terrible at more than 3 flats and more than 2 sharps.
+
+## 2016-07-15
+
+* 34 loose sheets
+
+## 2016-07-26
+
+* 33 mostly from Great Songs of Broadway
+
+in the lobby of the Bonneville Hot Springs hotel the other day, my first reasonable access to a piano in a week. I am not great, but I was reading pretty fluently, and nobody tried to chase me out of the lobby.
+
+I had tried to play a few things on a street piano in Portland, but it was in such bad shape it hardly counts
+
+## 2016-07-27
+
+* 19 Keith Prowse' 7th Song and Dance Album
+* 12 Fifth Paramount Song Folio
+* 12 25 Hits Through the Years
+
+on the out-of-tune lobby piano of the Crystal Crane Hot Springs
+
+## 2016-08-01
+
+* 34 loose sheets
+* 28 Famous Song Hits
+
+
+So 317 songs in July. Not terrible considering we were traveling for half the month.
+
+## 2016-08-03
+
+I have to say, the fact that I could play songs, in public, without rehearsal, for 2+ hours at a time, twice in a week, with a stopped-up ear, on poorly-maintained pianos, must mean that I have passed the "I can do it" milestone. I am not great, but I can do it.
+
+That's after a little over two years of solid work: fake-book sight reading from June 2014 through Jan 2015, and then full arrangements since then.
+
+(June 2014 per overdue notice from Oakland Library for Irving Berlin, Broadway, and movie musical songs that I wouldn't have previously known. In April 2014 I was checking out rock stuff that I would have known the melodies to already.)
+
+So why I am I still so clumsy sometimes, when I am conscious of what I am doing instead of being able to just do it?
+
+## 2016-08-31
+
+* 39 loose sheets
+* 30 "30 years, 30 hits"
+* 21 The Passing Parade
+* 100 20s 30s & 40s Showstoppers
+* 32 Armed Forces Song Folio: Sep 56, Aug 56, Feb 55, Mar 55
+* 47 Rodgers and Hart Song Book
+
+So 269 songs in August. Slowest month this year, but no surprise given all the time with Dot in the hospital.
+
+## 2016-09-05
+
+* 16 from World's Greatest Hits of the Forties
+
+In Murrieta
+
+## 2016-09-18
+
+Last night I found myself trying to play some grace notes in Bluebirds in the Moonlight (5th Paramount Song Folio). Not very good at it though.
+
+I am still really bad at giant treble chords where both hands are playing part of some mass of notes at the top of the treble clef and beyond.
+
+Getting better at key of Ab and a little better at D, but still not good.
+
+## 2016-09-25
+
+Getting more comfortable with complicated rhythms. In particular, made it through The Impossible Dream.
+
+## 2016-10-01
+
+* 11 loose sheets
+* 33 Song Hits of the Fabulous 50s (Tea For Two Cha Cha is too hard)
+* 74 Great Songs of Broadway
+* 24 Armed Forces Song Folio (Mar 62, Oct 63, Jun 56)
+* 19 Keith Prowse' 7th Song and Dance Album
+* 12 Paramount Song Folio #5
+* 25 25 Hits Through the Years
+* 33 Nat King Cole Unforgettable
+* 44 loose sheets
+* 31 Irving Berlin Universal Dance Folio #28
+* 12 Paramount Song Folio #9
+* 12 Paramount Song Folio #2
+* 12 Paramount Song Folio #6
+* 15 Robbins Hollywood Dance Folio #7
+* 33 loose sheets
+* 49 Beatles Complete I-Z (through Savoy Truffle)
+
+So that's 455 songs played in September
+
+I am actually pretty decent now, although still with several gaping holes in my skills
+
+## 2016-10-08
+
+* 27 loose sheets ("keep")
+* 42 loose sheets
+
 
 ## 2016-10-11
 
 If there's anything I've learned from YouTube piano videos, it's that no one ever plays the original, published arrangement of anything
+
+## 2016-10-16
+
+* 128 Armed Forces Song Folio #4
+* 11 "keep"
+
+and several more runs through Pennies from Heaven, Rock around the Clock, How High the Moon, and Baby Doll, but I don't know how to count that
+
 
 ## 2016-10-18
 
 Library books due:
 
 * The sound of Broadway music : a book of orchestrators and orchestrations
+
+## 2016-10-31
+
+* 10 The Best 4 TV Songs
+* 12 34 Hit Parade Extras Broadway
+* 56 Armed Forces Song Folio (Mar 62, Jul 51, Mar 51, T, Jan 51, Feb 56, Jun 62)
+* 96 loose sheets
+
+So 382 songs played in October, plus whatever dupes I missed
+
+## 2016-11-07
+
+Getting better at using my right hand to play the top of a too-big left-hand chord when needed, sometimes without thinking about it too much.
+
+I spent an hour and a half last night filming myself trying to get through Stars Fell On Alabama once without making any big mistakes. I tend to get something wrong in the bridge every time. (Chosen because it doesn't have any page turns, it's in C, it doesn't do anything crazy. Still not quite enough.)
+
+## 2016-11-19
+
+* 54 loose sheets
+* 40 Armed Forces Song Folio (Jul 62, Oct 54, Jan 55, Apr 62, May 62)
+* 10 Irving Berlin Song Folio #1
+* 12 BVC Song Folio #6
+* 15 Design for Music
+* 11 So This Is Eden
+* 24 BVC Star Spangled #5
+* 12 Robbins Hit Parade
+* 22 34 Hit Parade Extras Broadway
+
+## 2016-11-30
+
+* 67 Sinatra: the best of the Capitol years
+* 7 loose sheets
+* 23 Frank Sinatra Anthology Vol 2
+* 19 loose sheets
+* 35 Rodgers and Hammerstein Song Book
+
+
+So that's 351 songs in November, plus whatever dupes I missed
 
 
 ## 2016-12-08
@@ -1030,6 +1203,69 @@ Library books due:
 ## 2016-12-18
 
 * If I cheat now and play music that is written in the key of E as if it were written in E♭, will I ever learn to play in E? #pianocapo
+
+## 2016-12-22
+
+* 14 The King and I vocal score
+* 3 Knuth's Fantasia Apocalyptica
+
+I'm finally starting to actually pay some attention to notated swing instead of just ignoring it and treating it as if it was all marked as straight eighth notes
+
+I can basically deal with four flats or two sharps now without thinking about it too much. But the three-sharp version of Getting To Know You is still too much.
+
+"The Roar of the Greasepaint" is probably the first stuff in 6/8 that I've ever felt fairly comfortable with instead of stumbling. (Dec 13). But (Dec 17) it gets trickier later in the book.
+
+* 18 Christmas Songs You Love to Sing
+
+Apparently I am basically OK (although certainly not smooth) with 1960s and 1970s stuff for the most part. Haven't tried to work into the 1980s or 1990s yet. Rhythms still too hard for me to read: Joy to the world (Jeremiah was a bullfrog), The continental walk, Monday Monday.
+
+Peter Gunn's ostinato is really hard for me to deal with, especially with the right hand in the bass clef, and triplets over the uneven left hand rhythm.
+
+* 35 100 Greatest Hits of the 60s and 70s (last 35)
+* 13 loose sheets (1960s)
+* 18 Roar of the Greasepaint
+* 30 Gem Dance Folio for 1941 (and I can do Lovely Lagoon now, although clumsily)
+* 77 The Joy of Christmas (but they're short)
+* 26 Carols and Songs of Christmas (also short)
+* 21 loose sheets (Christmas)
+* 23 Star Dance Folio #34
+* 12 Rainbow Album #4
+* 27 Manhattan Dance Folio #3
+* 31 loose sheets
+* 30 Sammy Kaye #1
+
+I can play stuff from the 80s too! Especially if I cheat and play key of E stuff in Eb. Hard key signatures are still hard. (Dec 19)
+
+* 28 The Best 4 TV Themes
+
+Dec 20: I feel right now about 80s+ music about the way I did about "Do Re Me" on Jan 19: I am not getting it right, but the failures are mere mistakes, not an inability to even contemplate it.
+
+The thing that *is* still basically impossible is sparse rhythms. "The Schuyler Sisters" from Hamilton has some places that I can't count because there's not enough context around it. I need to try "A lot of livin' to do" again.
+
+(Which is still the weird thing about "easy piano" arrangements: they are all about being as sparse as possible, which makes me wonder why rests come so much more easily to everyone else. Also weird that easy piano stuff prefers close note clusters in the bass to wider intervals. I am bad at left-hand clusters.)
+
+Cheating and playing B in Bb opens the door to even more things.
+
+* 6 loose sheets (1980s)
+* 22 The best of what's popular now!
+
+1980s arrangements are all boring and terrible. A lot of work to play with very little payoff in harmony or interest. They are dedicated to reproducing the recorded rhythm section.
+
+* 12 Hamilton (through The Room Where It Happens)
+
+A lot of it still very awkward through sparseness or weird harmony or complicated rhythm or things that are just hard to reach.
+
+* 4 Billy Joel Piano Solos (through Baby Grand)
+
+Arranged in an annoying style where the left hand is clustery and keeps moving at the same time as the right.
+
+* 4 Top Hits of 1989 (through Shake for the Skeik)
+
+The Love In Your Eyes is the stupidest 80s arrangement yet.
+
+* 2 loose sheets many times (The Peanut Vendor, Baby It's Cold Outside)
+
+Baby is easy because it's just vamping, no melody, so the repetition is to try to figure out how to get some melody in. I have spent enough time playing stupid 80s rhythm now that I can do The Peanut Vendor from 1930 basically fine now, even though it was hard a couple of weeks ago, so that's progress.
 
 ## 2017-01-09
 
