@@ -767,6 +767,11 @@ Library books due:
 * World Charts presents The French songbook ; songs the French people love
 * Edith Piaf memorial album : twenty-two internationally famous selections
 
+
+## 2016-07-10
+
+Why do synth keyboards tend to run from C to C, anyway? G to G seems like it would give better coverage of what keyboard music usually needs
+
 ## 2016-10-18
 
 Library books due:
@@ -786,6 +791,9 @@ Library books due:
 
 * Frank Sinatra anthology. Volume 2
 
+## 2016-12-18
+
+* If I cheat now and play music that is written in the key of E as if it were written in E♭, will I ever learn to play in E? #pianocapo
 
 ## 2017-01-09
 
