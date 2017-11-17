@@ -1,6 +1,10 @@
 piano-diary
 ===========
 
+## 2011-11-18
+
+Piano, not terribly well. (I can play songs that I know by ear and chords, but am very slow at actually reading music.)
+
 ## 2013-09-09
 
 We just ordered a Yamaha upright piano. It feels like kind of a crazy indulgence, but they do play a lot nicer than the 15-year-old synth that I have now.
@@ -11,6 +15,8 @@ I suck at reading music so most of my repertoire is "fake book" versions of Beat
 
 
 ## 2013-10-16
+
+Trying to play the piano from real sheet music after years in the "fake book" world. I am really slow.
 
 Sunday, I believe, was the first time in years (decades?) I have played a song from sheet music actually as written instead of doing it fake book style.
 
@@ -140,6 +146,10 @@ I know I am still not paying any real attention to key signatures, which will bi
 
 But maybe it will work...
 
+## 2014-06-27
+
+Officially creeped out that Facebook knows what sheet music I was looking at on eBay the other day.
+
 
 ## 2014-06-28
 
@@ -154,6 +164,8 @@ oklahoma and oh what a beautiful morning work pretty well.
 bye bye birdie rhythm is impossibly hard
 
 ## 2014-07-02
+
+I am trying to get decent at reading music, but mostly I play from the chord names and how I know the melody should sound
 
 I was taking pictures of early chord diagrams at the library July 2, 2014.
 
@@ -179,6 +191,10 @@ Library books due:
 ## 2014-08-05
 
 Today I bought a thrift store fake book and played through the whole first half of it, even songs I had never even heard before. And mostly it worked.
+
+## 2014-08-09
+
+Surprise twist to "fake book" history: UK sheet music of the 40s has chord names below, ukulele symbols above, and also solfege note names
 
 
 ## 2014-08-15
@@ -212,6 +228,36 @@ And I ordered the Rodgers & Hart and 100 Best Songs books Sep 15, 2014, so I pro
 Fort Mason book sale where I got the Army-Navy Hit Kits was September 24-28, 2014. Looks like I was there 2014-09-27 14:46:55
 
 
+## 2014-11-08
+
+Today's fake book discovery: British music publishers had a notation for chord+bass decades before US. "Adim on B" in Alice Blue Gown (1920)
+
+## 2014-11-10
+
+Free long-tail business idea: sell me cheap bulk facsimiles of obscure 1920s-50s pop song sheet music
+
+## 2014-11-21
+
+All these San Francisco addresses in this eBay sheet music from South Carolina. Wonder what instrument Frank L. Taylor of 6410 Geary played.
+
+
+## 2014-11-24:
+
+My indulgence lately has been bulk piano-vocal pop sheet music from the
+1920s through the 1950s on eBay. Bulk because I'm trying to get good at
+sight-reading melodies I've never even heard before, and you can only do
+that with a steady supply of new songs. Originals instead of reprints,
+because reprints are relentlessly focused on the few songs that were
+popular at the time and are still remembered today, instead of the mass
+of relative failures, and even on just the good parts of those songs
+instead of the whole things. That time range, because I'm still terrible
+at reading full piano arrangements, and it's the transitional period
+between 1923, when the ukulele craze and May Singhi Breen got publishers
+to start including chord names on their music, and the Beatles, when pop
+songwriting shifted from songs that work well on piano to ones that work
+well on guitar. It's all kind of ridiculous, but it's still cheaper and
+smaller and more educational than a lot of things I've spent money and
+space and time on.
 
 ## 2014-11-26
 
@@ -229,6 +275,10 @@ Library books due:
 Library books due:
 
 * Songs Judy Garland sings.
+
+## 2015-01-08
+
+British pop sheet music still retained its distinctive notation, with solfege above and chords below, as late as 1952
 
 
 ## 2015-01-27
@@ -254,6 +304,10 @@ Library books due:
 * The story of fake books : bootlegging songs to musicians
 * Hearing in time : psychological aspects of musical meter
 
+## 2015-02-03
+
+(Can I talk to you some time about how you learned to read piano chords at speed? I can read music but am slow and clunky)
+
 ## 2015-02-06
 
 Made a couple of decent runs through "All of Me." There is hope that I can do this. Still haven't dared to try to do anything with 3 flats or 2 sharps yet though.
@@ -266,6 +320,14 @@ the Bb/C# combo. The b and # are written next to each other, but there's only on
 
 This is definitely a milestone: made it through the whole "Hello I Must Be Going/Hooray for Captain Spaulding" suite, even the part in Ab when I haven't even been daring to play anything with 3 flats let alone 4. I am clumsy and slow and terrible, but I am literate!
 
+## 2015-02-11
+
+Very inconvenient for online research that copyright kicks in exactly at the moment in music notation history that I am eager to understand
+
+## 2015-02-15
+
+Rastall's "Notation of Western Music" at least mentions "fake book" chords.
+
 ## 2015-02-23
 
 I can play "Mister Sandman," with its oom-pah harmony, pretty much as written. Not well, not with grace, but without a lot of hesitation either.
@@ -273,6 +335,8 @@ I can play "Mister Sandman," with its oom-pah harmony, pretty much as written. N
 Yesterday I did kind of decently with "Get out and get under the moon" too. Steph asked me afterward if I could please play some songs she knew instead of 1930s pop that she's never heard of. My plan is to play as many songs as possible until I get good at it.
 
 ## 2015-02-28
+
+So mystifying that the late 60s-early 70s piano-buying boom came at the same time as the sheet music publishing industry was collapsing
 
 It's been a good couple of days. I am still pretty terrible, but I think I am on the edge of decent.
 
@@ -322,6 +386,10 @@ Things I am bad at:
 
 Still very rhythmically clunky, but getting better. Finally started giving pieces in Eb an honest chance instead of immediately deferring them. More than one sharp is still scary.
 
+## 2015-04-25
+
+Avoiding the temptation to scrap all these slides and write a new talk about the evolution of the written form of 20th century pop music
+
 ## 2015-04-26
 
 Eb is great now. I've been playing all kinds of Eb.
@@ -345,6 +413,8 @@ Sight-reading through "A Gal in Calico" just now really makes me think, I can do
 
 ## 2015-05-07
 
+This would have been an insanely expensive way to learn before the current era of cheap bulk used eBay sheet music.
+
 Shaky adequacy was May 7, https://twitter.com/enf/status/596526833442562049
 
 
@@ -356,6 +426,10 @@ Library books due:
 
 * The Bacharach and David song book
 * Anthology
+
+## 2015-05-18
+
+Wanted: music theory that explains why that chord seems so surprising for 1948, and why they hear Gm7 instead of Bb/C
 
 ## 2015-05-21
 
@@ -391,6 +465,10 @@ I can't tell if the arrangements in the Gem Dance Folio of 1926 No. 2 are really
 ## 2015-07-01
 
 Fats Waller's "My fate is in your hands" feels good too. I'm sloppy but close.
+
+## 2015-07-03
+
+The sheet music to "Ain't Misbehavin'," repeatedly, hopefully getting a little better each time
 
 ## 2015-07-05
 
@@ -525,6 +603,8 @@ Adding the thousand or so Hit Kit songs, if these are all actually 2-minute pop 
 ## 2015-11-01
 
 Actually did a half-decent job on a song with a backbeat ("The Candy Man"). Maybe 1960s pop will not elude me forever.
+
+Weird how little music publishers care whether they print the canonical version of a song or some other arrangement
 
 
 ## 2015-11-09
