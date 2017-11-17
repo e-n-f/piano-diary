@@ -280,6 +280,11 @@ Library books due:
 
 * Songs Judy Garland sings.
 
+## 2015-01-01
+
+Retroactive estimate (2015-05-07) of 1900 songs played in 2014 (sight-reading
+melodies and fake book chords): 1000 in the Armed Forces Song Folio and 900 in loose sheets.
+
 ## 2015-01-08
 
 British pop sheet music still retained its distinctive notation, with solfege above and chords below, as late as 1952
@@ -552,7 +557,7 @@ Of course whatever the next one in the book was was a disaster. But still!
 
 ## 2015-08-23
 
-Now doing vol 1 of Army Navy Hit Kit again. In "Give me the simple life" finally sort of got the feel for swinging the melody into the previous measure.
+Now doing vol 1 (i.e., 2) of Army Navy Hit Kit again. In "Give me the simple life" finally sort of got the feel for swinging the melody into the previous measure.
 
 
 ## 2015-08-24
@@ -682,6 +687,24 @@ Library books due:
 
 * Cole Porter, a musical anthology
 * The great songs of George Gershwin
+
+## 2016-01-01
+
+Retroactively:
+I don't know where I got 1953 songs in 2015 above, because it seems like it ought to be:
+
+* 933 through may, as cited 2015-07-13
+* 333 (5") through jul 13
+* 289 hit kit 5 (136) , 2 (153)
+* 430 songs (7"), 10-27
+* 16 Jul 51, Jan 51 hit kit
+* 115x how high the moon
+* 254 songs (4")
+* 375 in folios
+
+for a total of 2745, plus at least a hundred or two unrecorded in folios.
+It still seems low compared to the 5818 in 2016.
+At least I kept better track after this point.
 
 ## 2016-01-03
 
