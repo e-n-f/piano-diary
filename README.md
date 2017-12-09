@@ -134,6 +134,11 @@ Library books due:
 * The Wizard of Oz : vocal selections
 
 
+## 2014-06-21
+
+Bought _Christmas Songs the World Over_ from Urban Ore, according to receipt within.
+
+
 ## 2014-06-26
 
 I am trying to play songs as written instead of fake-book style from chords to see if I get any good at it.
@@ -239,6 +244,10 @@ Today's fake book discovery: British music publishers had a notation for chord+b
 ## 2014-11-10
 
 Free long-tail business idea: sell me cheap bulk facsimiles of obscure 1920s-50s pop song sheet music
+
+## 2014-11-13
+
+eBay: 1920s Sheet Music Lot of 150+ Retro Great Art
 
 ## 2014-11-21
 
