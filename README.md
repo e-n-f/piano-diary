@@ -1299,6 +1299,36 @@ The Love In Your Eyes is the stupidest 80s arrangement yet.
 
 Baby is easy because it's just vamping, no melody, so the repetition is to try to figure out how to get some melody in. I have spent enough time playing stupid 80s rhythm now that I can do The Peanut Vendor from 1930 basically fine now, even though it was hard a couple of weeks ago, so that's progress.
 
+## 2016-12-29
+
+Continuing the vacation habit of giving neglected hotel lobby pianos some attention
+
+## 2017-01-07
+
+The 1982 arrangement of Allentown in 50 Popular Giants #1 may not actually be easier to play than the 2001 arrangement, but it's a lot more natural
+
+* 3 Allentown, Cornflake Girl, You Were Always On My Mind
+
+On the sadly deteriorated piano at the Kauai Beach Resort (4331 Kauai Beach Dr, Lihue, Hawaii):
+
+* 38 Song Hits of the Fabulous 50s
+* 6 Song Hits of the Fabulous 50s (starting again)
+* 8 The King and I Vocal Score (p108-131)
+
+So that's 511 songs in December, for 5818 songs in 2016!
+
+## 2017-01-08
+
+The "more to call your name" measure of Baby Won't You Please Come Home (in the Sinatra 100 compilation) is the first time I think I have ever played something that anticipated the downbeat with both hands and just got it right the first time. Lots of other weird stuff going on with harmony in that song though. (Jan 7)
+
+Also in "A Foggy Day in London Town" (Jan 8). In other cases I still really want the left hand to hit on 1 though.
+
+"For once in my life", in 12/8 with a backbeat, is really hard for me to feel correctly.
+
+* 21 Burt Bacharach Anthology (through On My Own)
+
+
+
 ## 2017-01-09
 
 Library books due:
@@ -1307,6 +1337,110 @@ Library books due:
 * The best of Billy Joel
 * Anthology
 
+## 2017-01-11
+
+* 14 50 Popular Hits #1 (thru Piano Man; recording now since the bookmark is falling out)
+
+"Faithfully" is too hard in key and rhythm—skipped. Also Rhythm in the Sky
+"Tell her about it" rhythm is hard but I fumbled through it
+
+## 2017-01-15
+
+* 28 loose sheets
+* 100 20s 30s and 40s Showstoppers
+* 100 Frank Sinatra Centennial Songbook
+
+## 2017-01-21
+
+* 9 Cabaret Vocal Selections
+* 136 Armed Forces Song Folio #7
+* 18 Marx Bros songs from http://www.marx-brothers.org/music/sheetmusic.htm (Animal Crackers through Love Happy and a couple others)
+* 4 loose sheets
+* 12 Beatlemania #1 (through Girl)
+
+Hard keys and rhythms in Cabaret, but I can stumble through it. They like modulating between C and Db.
+
+I guess it's been a little over a year since the previous run through Song Folio #7. I feel like there were some I still couldn't do last time but didn't say anything about it then. All good this time other than a little rhythmic bumbling with 6/8 and rock.
+
+The Beatles stuff is still weird, I think because my knowledge of the songs is fighting with what the arrangers thought was important to incorporate (all the bass rhythms).
+
+I am still pretty much slopping over swung 8ths in older material because I can get away with it. Stuff from the 70s you've really got to read the 16th notes. Also continuing to ignore grace notes, but doing pretty much all optional melodic ornaments.
+
+Finally dawned on me how circle of fifths relates to modulation. Going up a full step costs you 2 sharps. Going up a half step costs you 7 sharps or 5 flats, so you are really restricted if you want to have a reasonable key on both sides of the modulation.
+
+
+## 2017-01-29
+
+* 24 Too many songs by Tom Lehrer
+* 10 Old MacDonald Had A Farm
+* 45 Great Songs of the Year 1973
+* 100 100 Giant Hits of the 60s and 70s
+
+Too hard: The World is a Ghetto, Bang A Gong
+
+that's 621 so far
+
+## 2017-01-31
+
+* 14 Simon and Garfunkel's greatest hits
+* 15 Country The 1st Top 25 of 1982
+
+"Shine" is too hard in E
+
+So that's 650 songs in January!
+
+## 2017-02-12
+
+* 13 loose sheets
+* 6 Lennon & McCartney Retrospective (through Oh My Love)
+* 11 Hamilton (through The Room Where It Happened)
+
+"What'd I Miss" is impossible to play reasonably. The rest is just hard.
+
+* 5 The Heights (through No Me Diga)
+* 4 Pink Floyd The Wall
+
+Reasonably playable but tons of rhythmic variation and sparseness
+
+* 44 Armed Forces Song Folio #8 (through They Can't Take That Away From Me)
+
+"Peter Gunn" rhythm is too hard to play right.
+
+* 9 Country the 1st Top 25 of 1982 (the rest)
+* 13 What's Popular Now! Level 3 #5
+* 26 The Rose and From The Empire Strikes Back The Imperial March Plus 24
+
+## 2017-02-14
+
+If nothing else, I am sure a lot better at left hand arpeggios than I was before.
+
+## 2017-02-20
+
+I can basically play three sharps now, although still not with a lot of confidence.
+
+## 2017-02-23
+
+* 25 Queen Deluxe Anthology
+
+(minus I want to break free, tear it up, need your loving tonight, tie your mother down, Brighton Rock)
+
+* 73 The Beach Boys Complete
+* 22 Say Say Say Read Em And Weep
+* 14 Dames at Sea vocal selections
+* 10 The Yearling vocal selections
+* 8 The Most Happy Fella vocal selections
+* 9 Purlie Vocal Selections
+* 2 Goldfinger a couple of times
+* 1 All My Love plus several failed attempts at other Led Zeppelin
+* 5 Top Hits of 1984 (Girls just want to have fun, Here comes the rain, Karma Chameleon, Radio Gaga, Jump)
+* 15 Pink Floyd The Wall (through Is there anybody out there?)
+
+I think the rest of the Wall would probably be OK but it's actually pretty tedious to play
+
+## 2017-02-24
+
+* 7 The Boy Friend song album
+* 6 Willy Wonka & the Chocolate Factory
 
 ## 2017-02-27
 
@@ -1315,6 +1449,31 @@ Library books due:
 * Damn Yankees : a musical comedy
 * The pajama game : a musical comedy
 * In the Heights
+
+## 2017-03-01
+
+* 15 Promises, Promises vocal selections
+* 49 BMI 50th Anniversary Songbook (Both Sides Now is too hard)
+* 14 Annie vocal selections
+* 3 Peter Pan vocal selections (through Never Never Land)
+* 6 Little Me vocal selections (through Deep Down Inside)
+* 6 Raisin vocal selections (through You Done Right)
+* 7 Tori Amos Anthology
+
+skipped Floating City, Silent all these years, Winter, Mother. Hard keys, hard rhythms.
+
+* 21 50 Supersongs of 1979
+
+Too hard: Don't you right her off, What you won't do for love, Hot number, Saturday night sunday morning, Love takes time, Precious love
+
+* 14 Damn Yankees vocal score (through Whatever Lola Wants)
+
+It is technically hard music, with lots of hand crossing and stuff.
+
+* 35 All Easy Classics to Moderns (through p47)
+
+
+So that's 498 songs in February.
 
 
 ## 2017-03-09
@@ -1425,3 +1584,17 @@ Library books due:
 * Vocal selections from Jamaica
 * Gold : greatest hits
 
+
+## 2017-07-25
+
+My finger joints seem stiff this week
+
+From more scanning, less piano playing? Or a permanent shift?
+
+Also gouty right big toe this morning
+
+## 2018-01-15
+
+Library books due:
+
+* The international library of piano music
