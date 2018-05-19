@@ -1522,6 +1522,176 @@ Library books due:
 * The pajama game : a musical comedy
 * In the Heights
 
+## 2017-04-01
+
+4 Song Hits of the Fabulous 50s
+13 loose sheets (keep)
+
+Joco:
+
+* 1 Take me out to the ballgame 1
+* 1 Take me out to the ballgame 2
+* 1 Goldfinger
+* 1 Baby elephant walk
+* 1 Rock around the clock 2
+* 1 The nearness of you
+* 1 Say it
+
+* 1 Says my heart
+* 1 Thanks for the memory
+* 1 You leave me breathless
+* 1 Lovelight in the starlight
+* 1 How'd ya like to love me
+* 1 Moments like this
+
+* 1 Mister Gallagher and Mister Shean
+
+
+In Murrieta:
+
+* 13 Les Mis vocal selections (minus Stars because four sharps)
+
+
+Back in Oakland:
+
+* 7 Tenderloin vocal selections
+* 24 Juke Box Parade
+* 42 Forty Two Fabulous Favorites
+* 21 Happy Chappies Greatest Collection of Outdoor Songs
+* 14 Les Mis vocal selections
+
+
+* 30 Songs for Guys and Gals
+* 3 loose sheets (Chicago, Rock around the Clock, Everyone says I Love You)
+* 18 Song Gems of Yesteryear
+* 8 The Apple Tree vocal selections
+* 15 Joy vocal selections
+* 15 How Now Dow Jones vocal selections
+
+* 40 40 Hits of our times #1
+* 12 Paramount Song Folio #6
+* 17 Nat King Cole Unforgettable (Nature Boy is still too hard)
+
+So that's 310 songs in March
+
+## 2017-04-??
+
+* 40 40 Hits of our times #2
+* 20 Platter Parade
+* 50 50 Best of All time Hits Warock/Cherio/Rytvoc
+
+* 2 Hamilton (Non-Stop, Right Hand Man)
+
+## 2017-04-25
+
+* 14 Beethoven Favorite and Easy Compositions
+* 75 Essential Keyboard Repertoire #2
+* 42 Golden Songs of Bacharach and David
+* 88 Definitive Jazz Collection
+
+## 2017-04-26
+
+Capriccio Catalan is pretty rocking. I think this is the first classical thing I've ever really enjoyed playing, even though I was pretty messy at it.
+
+* 12 De Sylva Brown and Henderson Song Album
+* 15 Robbins Hollywood Dance Folio #8
+* 7 loose sheets
+
+## 2017-04-30
+
+* 10 You're a good man Charlie Brown vocal selections
+* 15 Superman vocal selections
+* 12 Chicago vocal selections
+* 12 Mame vocal selections
+* 5 Lil Abner vocal selections
+* 8 The Music Man vocal selections
+* 6 The Sound of Music vocal selections
+* 7 loose sheets
+* 5 Everybody's favorite selected songs
+* 5 56 songs you love to sing
+* 57 Beatles I-Z (through Slow Down)
+* 12 The joy of romantic piano
+* 62 Essential keyboard repertoire #6 (through p120)
+* 1 Shiny
+
+So that's 633 songs in April
+
+I am feeling very solid some times, and then I get clumsy again. My big failing is hard keys: four or more sharps or flats. Better at them than I used to be at least!
+
+I should probably try more classical: hard keys but no hard rhythms, so I only get one kind of hard at once.
+
+"Shiny" is probably the first thing where I was reading pop 16th notes with no difficulties. No triplets so maybe that's why it works.
+
+Now I know "The Man In The Moon Is A Lady" is from Mame.
+
+Got the piano tuned Tuesday. The high and low notes are better but the G above middle C doesn't seem quite right.
+
+I have started counting rests by wiggling my leg, without meaning to. I guess that makes me better at sparseness.
+
+Got the piano tuning touched up!
+
+## 2017-05-06:
+
+* 2 loose sheets
+* 27 Gem Dance Folio for 1937 #2
+
+## 2017-05-07:
+
+* 29 Gem Dance Folio for 1928
+* 8 Fanny vocal selections
+* 8 No Strings vocal selections
+* 8 110 In The Shade vocal selections
+* 9 Unsinkable Molly Brown vocal selections
+* 20 Top Teen Tunes
+
+And I seem to be able to play quarter note triplets over an eighth note double backbeat now, as in Goldfinger.
+
+* 26 Gem Dance Folio for 1937
+
+which seems to have no overlap with 1937 #2
+
+## 2017-05-09
+
+* 30 Gem Dance Folio for 1942
+
+The White Cliffs of Dover is especially good
+
+## 2017-05-11
+
+I think I can safely say that I am at the skill level that the Dance Folios targeted. Buy the dance folio, have a party, sight-read through it so your friends can hang out to some recent pop hits.
+
+The Mozart variations are harder than some of his other stuff. He doesn't use hard keys or rhythms or hand stretches, but the two lines going at the same time are tricky enough that I still mess them up.
+
+I am getting a lot more places where you're supposed to play the top note of the bass with your right thumb, and being fairly automatic about it.
+
+Things I still really need to get good at:
+
+* rolled chords (what *are* you really supposed to do with the Bb-Eb-G?)
+* keys with many sharps, especially E and B
+* grace notes, which I am generally ignoring
+* swung 8ths, which I am generally ignoring
+* dynamics, which I am completely ignoring
+
+## 2017-05-12
+
+* 30 Gem Dance Folio for 1943
+
+"A Guy 24 and A B-29" makes me feel really competent. It is 1945 "rock" and ultimately it isn't much more substantial than most of the Dance Folio stuff, but in the same way as Do A Deer, it uses a lot of chords, and I basically can hit them all without really trying.
+
+## 2017-05-13
+
+* 10 Werewolves of London, On Broadway, Dukes of Hazzard, YMCA, Jump, Karma Chameleon, Billie Jean, Girls Just Want To Have Fun, Say Say Say, Sweet Dreams
+* 5 Baker Street vocal selections
+* 7 Don't Bother Me, I Can't Cope vocal selections
+* 8 Leave It To Jane vocal selections
+* 10 Carnival vocal selections
+
+## 2017-05-14
+
+* 30 Gem Dance Folio for 1945
+* 31 All New Santly Joy Dance Folio #2
+* 13 Big Book of Movie and TV Themes: Chim Chimney, Flintstones, I Love Lucy, Little House, Leave it to Beaver, Major Dad, Masterpiece, Muppet Show, Murder She Wrote, Rocky & Bullwinkle, Rainbow Connection, Secret Agent Man, Under the Sea
+
 ## 2017-05-17
 
 Library books due:
@@ -1537,6 +1707,45 @@ Library books due:
 * You're a good man, Charlie Brown
 * Chicago : the musical : vocal selections
 
+## 2017-05-18
+
+* 19 Warner Bros Song Folio #2
+* 14 Doctor Dolittle vocal selections
+* 19 Buffy Once More With Feeling vocal score
+
+## 2017-05-20
+
+8 loose sheets
+
+## 2017-05-21
+
+* 4 Tubular bells, We built this city, Spinning wheel, I got love
+* 26 Gem dance folio for 1936
+* 42 loose sheets (Donald Vaughan)
+
+## 2017-05-24
+
+* 30 Queen Deluxe Anthology!
+
+Which demonstrates that I don't have to be scared of a bunch of sharps! Not all great, but I made it through.
+
+## 2017-05-28
+
+* 3 Sesame Street, Mr Rogers theme, A Day in the Life
+* 4 loose sheets
+* 25 Bing Crosby's Favorite Songs
+* 13 from Pink Floyd Anthology
+* 5 Big Hit Songwriters (The Who)
+
+## 2017-05-30
+
+* 34 Lennon & McCartney: A Retrospective
+
+I am sort of coping with keys with lots of sharps, but I am slow and uncertain. I can get why people practice scales instead of just songs. There is probably some set of exercises that would establish the fingerings in my mind.
+
+Pulled out A Lot of Livin' To Do, which I couldn't play on 2/27/16, and now I can. Not exactly smooth, but no fundamental problems.
+
+So 557 songs in May
 
 ## 2017-05-31
 
