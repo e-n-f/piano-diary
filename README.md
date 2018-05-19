@@ -1759,6 +1759,48 @@ Library books due:
 * Baker Street : a musical adventure of Sherlock Holmes
 * Leave it to Jane : vocal selection
 
+## 2017-06-01
+
+Now I know what slashes through a note stem mean: http://jennifercluff.blogspot.com/2009/05/slashes-through-note-stems.html
+
+Hamilton vocal score uses this for 32nd notes in Ten Duel Commandments
+
+* 10 Hamilton vocal score: Hurricane, Aaron Burr Sir, Farmer Refuted You'll Be Back, Aaron Burr Sir, My Shot, Schuyler Sisters, Farmer Refuted, You'll be back, Right hand man
+
+I skipped the story of tonight because the key of B still scares me
+
+## 2017-06-02
+
+* 14 A winter's ball, helpless, satisfied, story of tonight reprise, wait for it, redcoat transition, stay alive, ten duel commandments, meet me inside, that would be enough, guns and ships, history has its eyes on you, yorktown, what comes next
+
+Oh I am not good, but I am slogging through
+
+## 2017-06-03
+
+* 12 Dear Theodosia, Tomorrow there'll be more of us, Non-Stop, What'd I Miss?, Cabinet Battle #1, Take a break, Say no to this, The room where it happens, Schuyler defeated, Washington on your side, One last time, I know him
+
+(Skipped Cabinet Battle #2) What'd I Miss is still a complete mess.
+
+* 8 The Adams administration, Hurricane, The Reynolds Pamphlet, Burn, Blow us all away, Stay Alive reprise, It's quiet uptown
+
+Couldn't make it through We Know
+
+* 34 34 Hit Parade Extras: Broadway Shows
+
+## 2017-06-04
+
+* 7 Election of 1800, Your obedient servant, Best of wives and best of women, The world was wide enough, Who lives who dies who tells your story, Exit music, Alexander Hamilton
+
+After playing Hamilton, everything else seems downright reasonable.
+
+* 11 Brigadoon vocal selections
+* 7 High Spirits vocal selections
+
+## 2017-06-06
+
+"The last night of the world" ("Played on a solo saxophone") is in B, and I basically made it through! Fumbly but there is hope. The saxophone player must hate playing in B too.
+
+I remember Luck Be A Lady being impossibly hard last time I tried it. It's got some awkward key changes, but is basically fine now.
 
 ## 2017-06-08
 
@@ -1777,6 +1819,49 @@ Library books due:
 * New 80's gold update
 * Greatest songs of our time : sixty-three golden hits.
 * Great superstars of today :  voice, piano, guitar.
+
+## 2017-06-09
+
+"A song" seems to be about 4 minutes currently, based on 8 songs in 33 minutes, so that means I'm spending 35-40 hours a month playing.
+
+## 2017-06-18
+
+* 60 loose sheets (Donald Vaughan)
+* 1 Captain Spaulding
+* 73 Best Broadway Songs Ever
+* 40 40 French Hits Of Our Time
+* 10 Schuyler sisters, You'll be back, Helpless, Satisfied, Wait for it, That would be enough, History has its eyes on you, Dear Theodosia, Washington on your side, Satisfied again
+
+And fake-booked the Schuyler Sisters vocal lines
+
+Two Lost Souls (1955) feels kind of like a proto-double backbeat. When did it really come into use?
+
+## 2017-06-25
+
+Hmm, I think Hamilton actually means oscillating between octaves by the slashes through note bars.
+
+* 12 Hamilton (through History Has Its Eyes On You, and Burn and Quiet Uptown)
+* 14 Donald Vaughan
+* 8 Seven Bridges for Seven Brothers vocal selections
+* 6 Umbrellas of Cherbourg vocal selections
+* 16 Armed Forces Song Folio (Aug 1956, March 1962)
+* 5 Universal Dance Folio for 1936 that I didn't count earlier
+* 24 Columbia's Best of Schultz that I didn't count earlier
+
+## 2017-06-30
+
+* 96 Broadway Showstoppers (didn't get through the last few)
+* 15 Abba Gold (through Does Your Mother Know)
+
+Lots of hard keys in the Abba
+
+* 5 Jamaica vocal selections (through Savannah)
+* 22 Tommy (through Welcome)
+* 7 Mondo Cane musical score
+
+* 16 The Unpublished Cole Porter (in Murrieta)
+
+So that's 562 songs in June
 
 
 ## 2017-07-12
