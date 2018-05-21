@@ -136,6 +136,10 @@ Library books due:
 
 ## 2014-06-21
 
+It feels like discovering a secret every time I play one of these pre-1960 pop songs that have an intro verse that no one ever performs
+
+Perhaps the weirdest rarely-performed intro verse is to "I'm Looking Over a Four Leaf Clover," like some unrelated song tacked on.
+
 Bought _Christmas Songs the World Over_ from Urban Ore, according to receipt within.
 
 
@@ -172,7 +176,7 @@ bye bye birdie rhythm is impossibly hard
 
 I am trying to get decent at reading music, but mostly I play from the chord names and how I know the melody should sound
 
-I was taking pictures of early chord diagrams at the library July 2, 2014.
+An hour and a half at the library counting songs with chord names and/or symbols to get a sense of the evolution of "fake book" notation
 
 
 
@@ -191,6 +195,12 @@ Library books due:
 * Jesus Christ superstar : a rock opera
 * Vocal selections from Annie
 * The Themes of 007 : James Bond's greatest hits [piano, vocal, chords.]
+
+## 2014-07-27
+
+Musical revelation: Rubber Duckie from Sesame Street is almost the same song as Everyone Says I Love You from the Marx Bros' Horse Feathers!
+
+
 
 
 ## 2014-08-05
