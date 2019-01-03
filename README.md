@@ -136,6 +136,10 @@ Library books due:
 
 ## 2014-06-21
 
+It feels like discovering a secret every time I play one of these pre-1960 pop songs that have an intro verse that no one ever performs
+
+Perhaps the weirdest rarely-performed intro verse is to "I'm Looking Over a Four Leaf Clover," like some unrelated song tacked on.
+
 Bought _Christmas Songs the World Over_ from Urban Ore, according to receipt within.
 
 
@@ -172,7 +176,7 @@ bye bye birdie rhythm is impossibly hard
 
 I am trying to get decent at reading music, but mostly I play from the chord names and how I know the melody should sound
 
-I was taking pictures of early chord diagrams at the library July 2, 2014.
+An hour and a half at the library counting songs with chord names and/or symbols to get a sense of the evolution of "fake book" notation
 
 
 
@@ -191,6 +195,12 @@ Library books due:
 * Jesus Christ superstar : a rock opera
 * Vocal selections from Annie
 * The Themes of 007 : James Bond's greatest hits [piano, vocal, chords.]
+
+## 2014-07-27
+
+Musical revelation: Rubber Duckie from Sesame Street is almost the same song as Everyone Says I Love You from the Marx Bros' Horse Feathers!
+
+
 
 
 ## 2014-08-05
@@ -403,6 +413,8 @@ Things I am bad at:
 ## 2015-03-29
 
 Still very rhythmically clunky, but getting better. Finally started giving pieces in Eb an honest chance instead of immediately deferring them. More than one sharp is still scary.
+
+(See 2017-12-24 below for songs I timed on 2015-03-30.)
 
 ## 2015-04-25
 
@@ -1299,6 +1311,36 @@ The Love In Your Eyes is the stupidest 80s arrangement yet.
 
 Baby is easy because it's just vamping, no melody, so the repetition is to try to figure out how to get some melody in. I have spent enough time playing stupid 80s rhythm now that I can do The Peanut Vendor from 1930 basically fine now, even though it was hard a couple of weeks ago, so that's progress.
 
+## 2016-12-29
+
+Continuing the vacation habit of giving neglected hotel lobby pianos some attention
+
+## 2017-01-07
+
+The 1982 arrangement of Allentown in 50 Popular Giants #1 may not actually be easier to play than the 2001 arrangement, but it's a lot more natural
+
+* 3 Allentown, Cornflake Girl, You Were Always On My Mind
+
+On the sadly deteriorated piano at the Kauai Beach Resort (4331 Kauai Beach Dr, Lihue, Hawaii):
+
+* 38 Song Hits of the Fabulous 50s
+* 6 Song Hits of the Fabulous 50s (starting again)
+* 8 The King and I Vocal Score (p108-131)
+
+So that's 511 songs in December, for 5818 songs in 2016!
+
+## 2017-01-08
+
+The "more to call your name" measure of Baby Won't You Please Come Home (in the Sinatra 100 compilation) is the first time I think I have ever played something that anticipated the downbeat with both hands and just got it right the first time. Lots of other weird stuff going on with harmony in that song though. (Jan 7)
+
+Also in "A Foggy Day in London Town" (Jan 8). In other cases I still really want the left hand to hit on 1 though.
+
+"For once in my life", in 12/8 with a backbeat, is really hard for me to feel correctly.
+
+* 21 Burt Bacharach Anthology (through On My Own)
+
+
+
 ## 2017-01-09
 
 Library books due:
@@ -1307,6 +1349,110 @@ Library books due:
 * The best of Billy Joel
 * Anthology
 
+## 2017-01-11
+
+* 14 50 Popular Hits #1 (thru Piano Man; recording now since the bookmark is falling out)
+
+"Faithfully" is too hard in key and rhythm—skipped. Also Rhythm in the Sky
+"Tell her about it" rhythm is hard but I fumbled through it
+
+## 2017-01-15
+
+* 28 loose sheets
+* 100 20s 30s and 40s Showstoppers
+* 100 Frank Sinatra Centennial Songbook
+
+## 2017-01-21
+
+* 9 Cabaret Vocal Selections
+* 136 Armed Forces Song Folio #7
+* 18 Marx Bros songs from http://www.marx-brothers.org/music/sheetmusic.htm (Animal Crackers through Love Happy and a couple others)
+* 4 loose sheets
+* 12 Beatlemania #1 (through Girl)
+
+Hard keys and rhythms in Cabaret, but I can stumble through it. They like modulating between C and Db.
+
+I guess it's been a little over a year since the previous run through Song Folio #7. I feel like there were some I still couldn't do last time but didn't say anything about it then. All good this time other than a little rhythmic bumbling with 6/8 and rock.
+
+The Beatles stuff is still weird, I think because my knowledge of the songs is fighting with what the arrangers thought was important to incorporate (all the bass rhythms).
+
+I am still pretty much slopping over swung 8ths in older material because I can get away with it. Stuff from the 70s you've really got to read the 16th notes. Also continuing to ignore grace notes, but doing pretty much all optional melodic ornaments.
+
+Finally dawned on me how circle of fifths relates to modulation. Going up a full step costs you 2 sharps. Going up a half step costs you 7 sharps or 5 flats, so you are really restricted if you want to have a reasonable key on both sides of the modulation.
+
+
+## 2017-01-29
+
+* 24 Too many songs by Tom Lehrer
+* 10 Old MacDonald Had A Farm
+* 45 Great Songs of the Year 1973
+* 100 100 Giant Hits of the 60s and 70s
+
+Too hard: The World is a Ghetto, Bang A Gong
+
+that's 621 so far
+
+## 2017-01-31
+
+* 14 Simon and Garfunkel's greatest hits
+* 15 Country The 1st Top 25 of 1982
+
+"Shine" is too hard in E
+
+So that's 650 songs in January!
+
+## 2017-02-12
+
+* 13 loose sheets
+* 6 Lennon & McCartney Retrospective (through Oh My Love)
+* 11 Hamilton (through The Room Where It Happened)
+
+"What'd I Miss" is impossible to play reasonably. The rest is just hard.
+
+* 5 The Heights (through No Me Diga)
+* 4 Pink Floyd The Wall
+
+Reasonably playable but tons of rhythmic variation and sparseness
+
+* 44 Armed Forces Song Folio #8 (through They Can't Take That Away From Me)
+
+"Peter Gunn" rhythm is too hard to play right.
+
+* 9 Country the 1st Top 25 of 1982 (the rest)
+* 13 What's Popular Now! Level 3 #5
+* 26 The Rose and From The Empire Strikes Back The Imperial March Plus 24
+
+## 2017-02-14
+
+If nothing else, I am sure a lot better at left hand arpeggios than I was before.
+
+## 2017-02-20
+
+I can basically play three sharps now, although still not with a lot of confidence.
+
+## 2017-02-23
+
+* 25 Queen Deluxe Anthology
+
+(minus I want to break free, tear it up, need your loving tonight, tie your mother down, Brighton Rock)
+
+* 73 The Beach Boys Complete
+* 22 Say Say Say Read Em And Weep
+* 14 Dames at Sea vocal selections
+* 10 The Yearling vocal selections
+* 8 The Most Happy Fella vocal selections
+* 9 Purlie Vocal Selections
+* 2 Goldfinger a couple of times
+* 1 All My Love plus several failed attempts at other Led Zeppelin
+* 5 Top Hits of 1984 (Girls just want to have fun, Here comes the rain, Karma Chameleon, Radio Gaga, Jump)
+* 15 Pink Floyd The Wall (through Is there anybody out there?)
+
+I think the rest of the Wall would probably be OK but it's actually pretty tedious to play
+
+## 2017-02-24
+
+* 7 The Boy Friend song album
+* 6 Willy Wonka & the Chocolate Factory
 
 ## 2017-02-27
 
@@ -1315,6 +1461,31 @@ Library books due:
 * Damn Yankees : a musical comedy
 * The pajama game : a musical comedy
 * In the Heights
+
+## 2017-03-01
+
+* 15 Promises, Promises vocal selections
+* 49 BMI 50th Anniversary Songbook (Both Sides Now is too hard)
+* 14 Annie vocal selections
+* 3 Peter Pan vocal selections (through Never Never Land)
+* 6 Little Me vocal selections (through Deep Down Inside)
+* 6 Raisin vocal selections (through You Done Right)
+* 7 Tori Amos Anthology
+
+skipped Floating City, Silent all these years, Winter, Mother. Hard keys, hard rhythms.
+
+* 21 50 Supersongs of 1979
+
+Too hard: Don't you right her off, What you won't do for love, Hot number, Saturday night sunday morning, Love takes time, Precious love
+
+* 14 Damn Yankees vocal score (through Whatever Lola Wants)
+
+It is technically hard music, with lots of hand crossing and stuff.
+
+* 35 All Easy Classics to Moderns (through p47)
+
+
+So that's 498 songs in February.
 
 
 ## 2017-03-09
@@ -1363,6 +1534,176 @@ Library books due:
 * The pajama game : a musical comedy
 * In the Heights
 
+## 2017-04-01
+
+4 Song Hits of the Fabulous 50s
+13 loose sheets (keep)
+
+Joco:
+
+* 1 Take me out to the ballgame 1
+* 1 Take me out to the ballgame 2
+* 1 Goldfinger
+* 1 Baby elephant walk
+* 1 Rock around the clock 2
+* 1 The nearness of you
+* 1 Say it
+
+* 1 Says my heart
+* 1 Thanks for the memory
+* 1 You leave me breathless
+* 1 Lovelight in the starlight
+* 1 How'd ya like to love me
+* 1 Moments like this
+
+* 1 Mister Gallagher and Mister Shean
+
+
+In Murrieta:
+
+* 13 Les Mis vocal selections (minus Stars because four sharps)
+
+
+Back in Oakland:
+
+* 7 Tenderloin vocal selections
+* 24 Juke Box Parade
+* 42 Forty Two Fabulous Favorites
+* 21 Happy Chappies Greatest Collection of Outdoor Songs
+* 14 Les Mis vocal selections
+
+
+* 30 Songs for Guys and Gals
+* 3 loose sheets (Chicago, Rock around the Clock, Everyone says I Love You)
+* 18 Song Gems of Yesteryear
+* 8 The Apple Tree vocal selections
+* 15 Joy vocal selections
+* 15 How Now Dow Jones vocal selections
+
+* 40 40 Hits of our times #1
+* 12 Paramount Song Folio #6
+* 17 Nat King Cole Unforgettable (Nature Boy is still too hard)
+
+So that's 310 songs in March
+
+## 2017-04-??
+
+* 40 40 Hits of our times #2
+* 20 Platter Parade
+* 50 50 Best of All time Hits Warock/Cherio/Rytvoc
+
+* 2 Hamilton (Non-Stop, Right Hand Man)
+
+## 2017-04-25
+
+* 14 Beethoven Favorite and Easy Compositions
+* 75 Essential Keyboard Repertoire #2
+* 42 Golden Songs of Bacharach and David
+* 88 Definitive Jazz Collection
+
+## 2017-04-26
+
+Capriccio Catalan is pretty rocking. I think this is the first classical thing I've ever really enjoyed playing, even though I was pretty messy at it.
+
+* 12 De Sylva Brown and Henderson Song Album
+* 15 Robbins Hollywood Dance Folio #8
+* 7 loose sheets
+
+## 2017-04-30
+
+* 10 You're a good man Charlie Brown vocal selections
+* 15 Superman vocal selections
+* 12 Chicago vocal selections
+* 12 Mame vocal selections
+* 5 Lil Abner vocal selections
+* 8 The Music Man vocal selections
+* 6 The Sound of Music vocal selections
+* 7 loose sheets
+* 5 Everybody's favorite selected songs
+* 5 56 songs you love to sing
+* 57 Beatles I-Z (through Slow Down)
+* 12 The joy of romantic piano
+* 62 Essential keyboard repertoire #6 (through p120)
+* 1 Shiny
+
+So that's 633 songs in April
+
+I am feeling very solid some times, and then I get clumsy again. My big failing is hard keys: four or more sharps or flats. Better at them than I used to be at least!
+
+I should probably try more classical: hard keys but no hard rhythms, so I only get one kind of hard at once.
+
+"Shiny" is probably the first thing where I was reading pop 16th notes with no difficulties. No triplets so maybe that's why it works.
+
+Now I know "The Man In The Moon Is A Lady" is from Mame.
+
+Got the piano tuned Tuesday. The high and low notes are better but the G above middle C doesn't seem quite right.
+
+I have started counting rests by wiggling my leg, without meaning to. I guess that makes me better at sparseness.
+
+Got the piano tuning touched up!
+
+## 2017-05-06:
+
+* 2 loose sheets
+* 27 Gem Dance Folio for 1937 #2
+
+## 2017-05-07:
+
+* 29 Gem Dance Folio for 1928
+* 8 Fanny vocal selections
+* 8 No Strings vocal selections
+* 8 110 In The Shade vocal selections
+* 9 Unsinkable Molly Brown vocal selections
+* 20 Top Teen Tunes
+
+And I seem to be able to play quarter note triplets over an eighth note double backbeat now, as in Goldfinger.
+
+* 26 Gem Dance Folio for 1937
+
+which seems to have no overlap with 1937 #2
+
+## 2017-05-09
+
+* 30 Gem Dance Folio for 1942
+
+The White Cliffs of Dover is especially good
+
+## 2017-05-11
+
+I think I can safely say that I am at the skill level that the Dance Folios targeted. Buy the dance folio, have a party, sight-read through it so your friends can hang out to some recent pop hits.
+
+The Mozart variations are harder than some of his other stuff. He doesn't use hard keys or rhythms or hand stretches, but the two lines going at the same time are tricky enough that I still mess them up.
+
+I am getting a lot more places where you're supposed to play the top note of the bass with your right thumb, and being fairly automatic about it.
+
+Things I still really need to get good at:
+
+* rolled chords (what *are* you really supposed to do with the Bb-Eb-G?)
+* keys with many sharps, especially E and B
+* grace notes, which I am generally ignoring
+* swung 8ths, which I am generally ignoring
+* dynamics, which I am completely ignoring
+
+## 2017-05-12
+
+* 30 Gem Dance Folio for 1943
+
+"A Guy 24 and A B-29" makes me feel really competent. It is 1945 "rock" and ultimately it isn't much more substantial than most of the Dance Folio stuff, but in the same way as Do A Deer, it uses a lot of chords, and I basically can hit them all without really trying.
+
+## 2017-05-13
+
+* 10 Werewolves of London, On Broadway, Dukes of Hazzard, YMCA, Jump, Karma Chameleon, Billie Jean, Girls Just Want To Have Fun, Say Say Say, Sweet Dreams
+* 5 Baker Street vocal selections
+* 7 Don't Bother Me, I Can't Cope vocal selections
+* 8 Leave It To Jane vocal selections
+* 10 Carnival vocal selections
+
+## 2017-05-14
+
+* 30 Gem Dance Folio for 1945
+* 31 All New Santly Joy Dance Folio #2
+* 13 Big Book of Movie and TV Themes: Chim Chimney, Flintstones, I Love Lucy, Little House, Leave it to Beaver, Major Dad, Masterpiece, Muppet Show, Murder She Wrote, Rocky & Bullwinkle, Rainbow Connection, Secret Agent Man, Under the Sea
+
 ## 2017-05-17
 
 Library books due:
@@ -1378,6 +1719,45 @@ Library books due:
 * You're a good man, Charlie Brown
 * Chicago : the musical : vocal selections
 
+## 2017-05-18
+
+* 19 Warner Bros Song Folio #2
+* 14 Doctor Dolittle vocal selections
+* 19 Buffy Once More With Feeling vocal score
+
+## 2017-05-20
+
+8 loose sheets
+
+## 2017-05-21
+
+* 4 Tubular bells, We built this city, Spinning wheel, I got love
+* 26 Gem dance folio for 1936
+* 42 loose sheets (Donald Vaughan)
+
+## 2017-05-24
+
+* 30 Queen Deluxe Anthology!
+
+Which demonstrates that I don't have to be scared of a bunch of sharps! Not all great, but I made it through.
+
+## 2017-05-28
+
+* 3 Sesame Street, Mr Rogers theme, A Day in the Life
+* 4 loose sheets
+* 25 Bing Crosby's Favorite Songs
+* 13 from Pink Floyd Anthology
+* 5 Big Hit Songwriters (The Who)
+
+## 2017-05-30
+
+* 34 Lennon & McCartney: A Retrospective
+
+I am sort of coping with keys with lots of sharps, but I am slow and uncertain. I can get why people practice scales instead of just songs. There is probably some set of exercises that would establish the fingerings in my mind.
+
+Pulled out A Lot of Livin' To Do, which I couldn't play on 2/27/16, and now I can. Not exactly smooth, but no fundamental problems.
+
+So 557 songs in May
 
 ## 2017-05-31
 
@@ -1391,6 +1771,48 @@ Library books due:
 * Baker Street : a musical adventure of Sherlock Holmes
 * Leave it to Jane : vocal selection
 
+## 2017-06-01
+
+Now I know what slashes through a note stem mean: http://jennifercluff.blogspot.com/2009/05/slashes-through-note-stems.html
+
+Hamilton vocal score uses this for 32nd notes in Ten Duel Commandments
+
+* 10 Hamilton vocal score: Hurricane, Aaron Burr Sir, Farmer Refuted You'll Be Back, Aaron Burr Sir, My Shot, Schuyler Sisters, Farmer Refuted, You'll be back, Right hand man
+
+I skipped the story of tonight because the key of B still scares me
+
+## 2017-06-02
+
+* 14 A winter's ball, helpless, satisfied, story of tonight reprise, wait for it, redcoat transition, stay alive, ten duel commandments, meet me inside, that would be enough, guns and ships, history has its eyes on you, yorktown, what comes next
+
+Oh I am not good, but I am slogging through
+
+## 2017-06-03
+
+* 12 Dear Theodosia, Tomorrow there'll be more of us, Non-Stop, What'd I Miss?, Cabinet Battle #1, Take a break, Say no to this, The room where it happens, Schuyler defeated, Washington on your side, One last time, I know him
+
+(Skipped Cabinet Battle #2) What'd I Miss is still a complete mess.
+
+* 8 The Adams administration, Hurricane, The Reynolds Pamphlet, Burn, Blow us all away, Stay Alive reprise, It's quiet uptown
+
+Couldn't make it through We Know
+
+* 34 34 Hit Parade Extras: Broadway Shows
+
+## 2017-06-04
+
+* 7 Election of 1800, Your obedient servant, Best of wives and best of women, The world was wide enough, Who lives who dies who tells your story, Exit music, Alexander Hamilton
+
+After playing Hamilton, everything else seems downright reasonable.
+
+* 11 Brigadoon vocal selections
+* 7 High Spirits vocal selections
+
+## 2017-06-06
+
+"The last night of the world" ("Played on a solo saxophone") is in B, and I basically made it through! Fumbly but there is hope. The saxophone player must hate playing in B too.
+
+I remember Luck Be A Lady being impossibly hard last time I tried it. It's got some awkward key changes, but is basically fine now.
 
 ## 2017-06-08
 
@@ -1410,6 +1832,58 @@ Library books due:
 * Greatest songs of our time : sixty-three golden hits.
 * Great superstars of today :  voice, piano, guitar.
 
+## 2017-06-09
+
+"A song" seems to be about 4 minutes currently, based on 8 songs in 33 minutes, so that means I'm spending 35-40 hours a month playing.
+
+## 2017-06-18
+
+* 60 loose sheets (Donald Vaughan)
+* 1 Captain Spaulding
+* 73 Best Broadway Songs Ever
+* 40 40 French Hits Of Our Time
+* 10 Schuyler sisters, You'll be back, Helpless, Satisfied, Wait for it, That would be enough, History has its eyes on you, Dear Theodosia, Washington on your side, Satisfied again
+
+And fake-booked the Schuyler Sisters vocal lines
+
+Two Lost Souls (1955) feels kind of like a proto-double backbeat. When did it really come into use?
+
+## 2017-06-25
+
+Hmm, I think Hamilton actually means oscillating between octaves by the slashes through note bars.
+
+* 12 Hamilton (through History Has Its Eyes On You, and Burn and Quiet Uptown)
+* 14 Donald Vaughan
+* 8 Seven Bridges for Seven Brothers vocal selections
+* 6 Umbrellas of Cherbourg vocal selections
+* 16 Armed Forces Song Folio (Aug 1956, March 1962)
+* 5 Universal Dance Folio for 1936 that I didn't count earlier
+* 24 Columbia's Best of Schultz that I didn't count earlier
+
+## 2017-06-30
+
+* 96 Broadway Showstoppers (didn't get through the last few)
+* 15 Abba Gold (through Does Your Mother Know)
+
+Lots of hard keys in the Abba
+
+* 5 Jamaica vocal selections (through Savannah)
+* 22 Tommy (through Welcome)
+* 7 Mondo Cane musical score
+
+* 16 The Unpublished Cole Porter (in Murrieta)
+
+So that's 562 songs in June
+
+## 2017-07-10
+
+* 14 Donald Vaughan
+* 20 Album of New Radio Favorites #15
+* 50 Songs Recorded by Elvis Presley #2
+* 15 Robbins Hollywood Dance Folio #14
+* 5 Hamilton: It's quiet uptown, Helpless, Satisfied, I'll be back, What'd I miss
+
+What'd I miss is still complete garbage. On the others I can't keep the tempo but can basically do it otherwise. The I'll be back triplets are messy.
 
 ## 2017-07-12
 
@@ -1425,3 +1899,285 @@ Library books due:
 * Vocal selections from Jamaica
 * Gold : greatest hits
 
+## 2017-07-25
+
+My finger joints seem stiff this week
+
+From more scanning, less piano playing? Or a permanent shift?
+
+Also gouty right big toe this morning
+
+## 2017-07-31
+
+* 6 The best of Blood Sweat and Tears. (hard arrangements)
+
+A lot more scanning and a lot less piano this month!
+
+* 68 Armed Forces Song Folio (2/63, 4/57, 5/57, 3/63, 4/56, 8/64,1/63, 1/56)
+* 3 The Messiah (North Central excerpts)
+* 85 loose sheets (promos)
+
+So that's 261 songs in July
+
+## 2017-09-01
+
+* 8 The sound of music vocal score
+* 2 Something rotten vocal score
+
+* 197 loose sheets
+* 5 Stage Door Canteen
+* 4 Ev'ry month
+* 24 Armed Forces Song Folio (Oct 1957, Jul 1957, Dec 1957)
+
+I am feeling good about my playing now. Still not good enough for contemporary musicals, but getting more comfortable all the time.
+
+* 11 Bing Crosby Dance Folio #2
+
+A little harder than the usual 30s arrangements. All the copyrights are carefully masked out. Is it the source for a pirate edition?
+
+* 7 loose sheets
+* 40 Meet the Stars
+* 8 Armed Forces Song Folio (Sep 1957)
+* 31 Leslie Bricusse Songbook and Magazine
+
+So that's 337 songs in August
+
+## 2017-09-18
+
+* 108 loose sheets
+* 11 Hello Dolly vocal selections
+* 8 Guys and Dolls vocal selections
+* 34 Another 34 Hit Parade Extras
+
+* 9 loose sheets
+* 15 Armed Forces Song Folio (May 64, Jul 64)
+* 23 Star Dance Folio #34
+* 26 Gem Dance Folio for 1937
+* 30 Gem Dance Folio for 1942
+* 30 Gem Dance Folio for 1943
+
+So that's 294 songs in September
+
+## 2017-10-07
+
+* 30 Gem Dance Folio for 1945
+* 18 Keith Prowse Song And Dance Folio #7
+* 10 Bing Crosby Song Folio
+* 8 loose sheets
+* 10 Wizard of Oz vocal selections
+
+I guess it's been a year and a half since I played the Wizard of Oz, and I am a whole lot better now than I was then. I think I must not have even attempted them all then.
+
+## 2017-10-13
+
+* 33 Armed Forces Song Folio T, Jan 57, Mar 51, Oct 57
+* 50 Broadway Musicals 1940-1949, which I started last month or before
+* 31 Santly-Joy Dance Folio #2
+
+## 2017-10-29
+
+* 8 Armed Forces Song Folio Dec 1956
+* 8 Armed Forces Song Folio Feb 1956
+* 15 Robbins Hollywood #15
+* 15 Robbins Hollywood #11
+* 31 Universal Dance Folio #18
+* 21 Robbins Hollywood #19
+* 23 Robbins Hollywood #18
+
+So that's 311 songs in October
+
+## 2017-11-06
+
+* 13 Chess vocal selections
+* 8 Armed Forces Song Folio, Mar 1956
+* 15 Hollywood Dance Folio #17
+
+Last night made it through the Chess Vocal Selections. One song was too hard (The American and Florence: a zillion sharps and I couldn't even remember what it was supposed to sound like), but the rest is hard but playable.
+
+I got the grace notes in The Story of Chess, which I remember failing to do before in the PDF score.
+
+I've been trying to play the Milli Vanilli folio, and the bass rhythms are very hard for me.
+
+Played a few times:
+
+* 4 Chicago (1960), Karma Chameleon, Jump, Girls Just Want to Have Fun
+
+## 2017-11-16
+
+Mostly been playing fairly unchallenging loose sheets (following the Yeargdribble "Read stuff that is insultingly, embarrassingly easy" advice) and the Sinatra centennial anthology. Made a video of Whistle While You Work but I can't get through the whole thing without any errors.
+
+Better at the "I'm broke" part of The Lady Is a Tramp than I used to be, but I can be accurate either at the notes or at the rhythm, but not both at once.
+
+* 3 Mozart Rondo Alla Turca
+
+I'm better at the parts with 3 sharps than I would have thought.
+
+* 63 loose sheets
+
+## 2011-11-18
+
+Momentarily confused by how to play the 16th notes in the intro to More (in Sinatra centennial) but then thought to do them crossing my left hand over and that worked fine
+
+## 2017-11-19
+
+I'm surprised I didn't comment on anything in the Sinatra centennial anthology in January. Some of this stuff is still kind of hard.
+
+## 2017-11-21
+
+* 100 Sinatra centennial, which I guess I still didn't say anything specific about, but I'm surprised I could play it all in January.
+
+## 2017-11-22
+
+* 16 Robbins Hollywood Dance Folio #14
+
+## 2017-11-23
+
+* 15 Robbins Hollywood Dance Folio #16
+
+## 2017-11-26
+
+* 23 loose sheets
+* 12 Frank Sinatra's Hits on Parade
+
+## 2017-11-29
+
+* 4 Hamilton vocal selections (Schuyler sisters, You'll be back, Helpless, Satisfied)
+
+Gave another try to What'd I Miss, but it's such a mess
+
+## 2017-11-30
+
+* 21 loose sheets
+* 15 Hill and Range #4
+* 16 Hill and Range #2
+
+So that's 328 songs in November
+
+## 2017-12-01
+
+Recounted the block of music that I sight-read in fake-book style in late 2014, since it still seemed to be together on the shelf. 12 inches, not 13 inches, is how I would measure it now, and I count it as 831 songs, pretty close to the 867 I estimated before.
+
+But this can't be right since there are a lot of songs in here, scattered throughout, with only ukulele chords, no chord names, so if I played them, it was from full arrangements. So I am just confused now. The historical record is corrupt.
+
+But my statements of the time are reasonably clear:
+
+* 2014-11-24 I am sight-reading melodies,
+* 2014-12-17 I try a full arrangement,
+* 2015-01-27 I am doing OK at some full arrangements. But I don't know what songs they were.
+
+## 2017-12-09
+
+* 55 loose sheets, from what I had thought was the original batch but now doubt
+
+After the BDE party, Steph requested some Christmas music, so:
+
+* 3 Rudolph, Sleigh Ride, White Christmas
+
+I am a lot better at the key changes in Sleigh Ride than I was last year, but am still clumsy and incapable of keeping up the tempo. I was making a lot of mistakes in White Christmas but I think it's just because it was already 1:00 in the morning and I was getting really tired.
+
+I still fumble the fills in the Silver Bells chorus too
+
+* 4 White Christmas, Silver Bells
+
+## 2017-12-17
+
+* 51 loose sheets
+
+plus a bunch of runs through The Nearness of You
+
+* 74 The Joy of Christmas (but they're short)
+* 26 Carols and Songs of Christmas
+* 9 Twinkle toes, Count your blessings, I'll be home for christmas, Here comes Santa Claus, Nuttin for Christmas, Frosty, Winter Wonderland, Santa Claus is coming to town, Have yourself a merry little xmas, Let it snow
+
+## 2017-12-23
+
+* 24 Mr Rogers Songbook
+* 9 loose sheets
+* 7 Let it snow, Comin to town, The xmas tree, Jingle Bells calumet, Jingle bells crosby, Do you hear, The xmas song
+
+## 2017-12-24
+
+A message from my past self:
+
+On 2015-03-30 it took me 6:57 to play Strange Interlude.
+
+Today (2017-12-24) it took 4:34 and then 4:17.
+
+So at least I can read 1/3 faster now than then…
+
+I'm still not great at playing it because it does some weird stuff.
+
+This also demonstrates that the pile of music I recounted was from early 2015, not late 2014.
+
+Paper Doll 2015-03-30 took me 7:04, now 3:18. I'm surprised I got more better at it than Strange Interlude, since it seems like it should have been easier then.
+
+## 2017-12-25
+
+There's Yes! Yes! In Your Eyes: 2015-03-30 was 7:17, now 4:27. I'm not sure what to make of all of this, except to confirm that I was in fact very slow in early 2015 as I imagined I was.
+
+It's still taking me like 5 seconds per measure now, when I would think correct tempo would be typically be 4.
+
+I guess I need to play something with an actual metronome marking and see how I compare.
+
+In the Evening: 6:03 including repeat of last phrase after patter, vs old 8:01
+
+Always You: 3:54 vs old 6:03
+
+Me and the Boy Friend: 3:28 vs old 5:28
+
+You're Like that Dreamy Moon: 2:21 vs old 3:58
+
+> It's still hard to read stuff that was typeset with that terrible 1800s-style engraving kit
+
+Skyrocket: 4:24 vs 7:43
+
+> It's kind of fun with the tremolo part. I must have just glossed over it in 2015.
+
+The Pal that I loved stole the Gal that I loved: 3:42 vs 6:52
+
+> Still some really weird chord progressions in there
+
+Dancing with my shadow: 3:36 vs 7:53!
+
+Love's old sweet song: 2:57 vs 5:15
+
+You walk by: 2:54 vs 5:26
+
+> Originally timed it as 6:08 but I think that must have included the previous song too
+
+## 2017-12-27
+
+On the Old Spanish Trail: 7:58 on 2015-04-02, now 4:45 or 3:55
+
+> I am still not great at the ostinato
+
+The house is haunted by the echo of your last goodbye: 9:16 vs 5:29
+
+And there you are: 8:22 vs 4:47
+
+* 15 timed songs as above
+* 13 other loose sheets
+* 1 Chestnuts roasting
+
+## 2017-12-31
+
+* 1 Shine on you crazy diamond
+
+I'm pretty sure the transcription has Part III in the wrong key. Kind of a mess regardless.
+
+Last night: a good feeling when I'm too tired to think coherently but can still basically read and play on autopilot.
+
+## 2018-01-01
+
+* 2 The Man With the Whiskers, That's What I want for Christmas
+* 13 Sousa Album
+* 30 loose sheets
+* 9 International library of piano music 2 (through p 57)
+
+So that's 346 songs in December, for a total of 5087 songs in 2017.
+
+## 2018-01-15
+
+Library books due:
+
+* The international library of piano music
