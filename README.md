@@ -2176,8 +2176,60 @@ Last night: a good feeling when I'm too tired to think coherently but can still 
 
 So that's 346 songs in December, for a total of 5087 songs in 2017.
 
+## 2018-01-07
+
+* 61 loose sheets
+* 32 more loose sheets today
+
+## 2018-01-08
+
+* 12 loose sheets
+
 ## 2018-01-15
 
 Library books due:
 
 * The international library of piano music
+
+## 2018-01-17
+
+* 4 Queen Night at the Opera (DOTL, Prophet, Love of My Life, Good Company)
+* 56 Armed Forces Song Folio (5/55, 7/56, 5/56, 9/55, 8/55, 12/55, 10/55)
+* 41 loose sheets
+* 4 Beethoven (6 easy variations, Sonata 10/3, Fur Elise, Sonata 49/2)
+
+## 2018-01-20
+
+* 24 previously unrecorded some time last year in Sixty Swinging Sounds/All time hit paraders for '72, through p74
+* 3 BS&T: Lisa Listen To Me, Spinning Wheel, Go Down Gambling
+* 20 70s/80s pops: this is your life, king of the road, thunderball, taste of honey, karma chameleon, girls just want to have fun, jump, ymca, in the navy, respect yourself, ghost riders, (illegible), mash, sweet caroline, country roads, always how it should be, this is mny country, til love touches your life, until it's time for you to go
+
+## 2018-01-21
+
+* 7 Help Songs By Lennon & McCartney With One By George
+* 13 In The Groove
+* 22 22 Popular Vocal Solos
+* 14 Movie Pops
+* 40 The Book of Golden Rock 'N' Roll
+
+## 2018-01-23
+
+And I felt like I was playing quite well this weekend. Still fumbling on sharp keys, but basically getting the rock rhythms, even if I sometimes had to count them very explicitly. I still cheat on swung 8ths though
+
+## 2018-01-28
+
+* 26 loose sheets (keep)
+* 67 Happiness is 67 Love Songs
+* 29 Beatles A-I (29 of the first 39)
+
+Still too hard: Boys, All I've Got to Do, Anna, Ask me Why, Because, Blue Jay Way, Chains, Day Tripper, Do you want to know a secret, Dizzy Miss Lizzy
+
+What is still hard is mostly not rhythms (aside from the occasional 16th note triplet or something) but keys with many sharps. E is too hard unless the rhythm is very slow and simple.
+
+* 8 loose sheets
+
+## 2018-02-05
+
+No opportunity to play any music in DC, so that's a total of
+
+* 483 songs in January
