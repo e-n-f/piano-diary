@@ -2367,16 +2367,16 @@ How to practice sharp keys without other difficulties at the same time?
 
 * 1 Sixteen going on seventeen reprise: in E, but so many accidentals too
 
-    Take a break from Hamilton is in E
-    Hey there from the Pajama Game vocal score is in Gb
-    Hey there reprise is in B
-    Nothing Like a Dame in South Pacific vocal score is in A
-    Wash that Man in South Pacific vocal score is in E
+  * Take a break from Hamilton is in E
+  * Hey there from the Pajama Game vocal score is in Gb
+  * Hey there reprise is in B
+  * Nothing Like a Dame in South Pacific vocal score is in A
+  * Wash that Man in South Pacific vocal score is in E
 
 * 1 The Rainbow Connection starts in A
 
-   Gary Indiana is in Ab
-   Rocky Horror (2000): Time Warp in A, Sweet Transvestite in E, 
+   * Gary Indiana is in Ab
+   * Rocky Horror (2000): Time Warp in A, Sweet Transvestite in E, 
 
 1 hour and 3 minutes of trying to play in E: All My Loving, And Your Bird Can Sing, and starting Ask Me Why. So that probably counts as
 
@@ -2663,6 +2663,7 @@ So that's 195 songs in December, and a total of 2873 songs in 2018.
 * 14 photocopy sheets
 
 Song of Norway is tricky because it's classical adaptations so the harmonies and progressions are weird
+
 What'd I Miss is still nigh-unplayable for me
 
 So that's 185 songs in January
