@@ -2404,3 +2404,248 @@ And I am feeling pretty good about myself, aside from known deficiencies:
 * swung 8ths, which I am generally still playing straight
 
 
+## 2018-06-05
+
+* 31 Nat King Cole Unforgettable
+
+Skipped Nature Boy and Lush Life because I still can't deal with the key signatures
+
+## 2018-06-09
+
+* 9 Bing Crosby Song Folio
+* 1 Royals
+* 11 Robbins Hollywood Song Folio #4
+* 30 Irving Berlin Universal #16 (1929)
+* 11 Hamilton (through What'd I Miss)
+
+What'd I Miss is still a disaster. Other from Hamilton is slow and uneven but recognizable.
+
+I had thought the Irving Berlin Universal folios were hard, but this one wasn't. 1937 seems to be harder arrangements, although it doesn't help that it's late and I'm tired.
+
+## 2018-06-13
+
+By George, I think I've got it!
+
+* 71 71 Giant Hits (1969, not 1971)
+
+Some of them are still hard—Take My Love, Man from Uncle, Turn Around Look At Me, Valley of the Dolls—but basically I can do it all.
+
+* 9 Sesame Street (2007)
+* 3 Sesame Street (1972)
+
+I still like the 1972 arrangements better. Ordered a copy of the 1971 edition, which is apparently different from them both
+
+* 3 Satie Gymnopedies
+
+I still don't get why he notates the hand jumps and staff splits the way he does
+
+* 31 Irving Berlin Universal #31 (mid-1937)
+
+## 2018-06-17
+
+And then I've been clumsy again the past few days. I think maybe just from being tired? I've been up early most of the past several days.
+
+* 7 Joan Brooks
+* 6 Ilse Werners Lieblingslieder
+* 2 Captain Spaulding/Hello I Must Be Going
+* 1 Ev'ry One Says I Love You
+* 30 Irving Berlin Universal #30 (1936-37)
+* 20 All Time Hit Parade Song Folio (through You Call it Madness)
+
+The tiny print in All Time is a big pain. Maybe my eyes aren't as good as I think they are?
+
+I also wonder if I am sitting too close to the piano. My right forearm is feeling cramped.
+
+## 2018-06-20
+
+* 20 Irving Berlin Universal #1 (through I'm Gonna Dance Wit…
+* 39 Lasse Martenson (through Pogostan Balladi)
+
+## 2018-06-15
+
+I never tallied up June.
+
+335 songs in June, the last week and a half of which I was in Alaska for, with no piano access.
+
+
+
+* 1 Sesame Street (1971)
+* 2 Route 66/Where can I go without you
+* 2 Girls just want to have fun/Karma chameleon
+* 1 Ev'ryone says I love you
+* 24 loose sheets from Vancouver
+* 12 DeSylva Brown and Henderson
+* 12 Paramount Song Folio #5
+
+1971 Sesame Street does a tiny one-note transition in the bass for the key change instead of just ratcheting over
+
+* 5 And oh, right, the first five songs from the School of Rock vocal score
+
+## 2018-06-24
+
+* 4 Ev'ry one says I love you
+* 31 Irving Berlin Universal #14
+* 31 Irving Berlin Universal #15
+* 8 Joan Brooks
+* 4 Irving Berlin Universal #29 is too hard still
+* 10 Warner Bros #2 and then got tired of it
+
+## 2018-06-28
+
+"Blue Skies" from Irving Berlin #14 stuck in my head
+
+* 1 loose sheet
+* 8 Armed Forces Song Folio Dec 64
+* 15 Robbins Hollywood Dance Folio #1. A few hard ones toward the end
+* 16 Hill and Range #3
+
+## 2018-08-01
+
+Including Aug 1 since I lost track of the date:
+
+* 15 Robbins Hollywood #4
+* 15 Robbins Hollywood #5
+* 15 Robbins Hollywood #3
+* 4 Joan Brooks
+
+
+So that's 236 songs in July. Surely there should have been more?
+
+## 2018-08-19
+
+1 Ev'ryone says I love you
+10 Old Mac Donald Had A Farm
+29 Irving Berlin Universal #32
+
+a lot of which is hard, but not, I think, as hard as some of the other years?
+
+* 29 Irving Berlin Universal #21
+
+which is not hard
+
+* 11 So This Is Eden
+
+These songs are an amateurish mess
+
+* 15 Robbins Hollywood #7
+* 15 Robbins Hollywood #6
+* 10 Les Mis
+
+The things in E are still terrible for me
+
+* 5 Songs for guys and gals
+* 17 Big Book of Movie and TV Themes (Flintstones, A Team, Lucy, Chim Chimney, Champagne Time, Endless Love, Father Knows Best, Flashdance, Greatest American Hero, Little House, Mickey Mouse Club, Mr Ed, Muppet Show, Pennies from Heaven, Rainbow Connection, Secret Agent Man, Under the Sea)
+
+* 6 Irving Berlin #28
+
+stopping because a lot of the arrangements are too hard for me
+
+* 1 Girls just want to have fun
+* 4 50 greats for the piano (1, 2, 5, 8)
+
+Is this how Turkish March is normally notated, half in grace notes?
+
+## 2018-08-19
+
+* 22 Armed Forces Song Folio #8
+
+Peter Gunn still stumps me
+
+## 2018-09-06
+
+* 8 Song Folio Aug 1959
+* 32 loose sheets
+
+So that's 215 songs in August, belatedly tallied
+
+## 2018-09-29
+
+* 1 Enigma Variations 9 (Nimrod)
+* 48 loose sheets
+* 50 Broadway Musicals Show By Show 1940-1949
+
+## 2018-10-02
+
+* 15 Barry Wood Hit Parade of Songs
+* 14 Robbins Hollywood #6
+* 3 Into the Woods (So discordant—am I playing it right?)
+* 7 Moana (hard keys, tricky rhythm)
+* 4 Purlie
+* 5 Phantom of the Opera (hard keys)
+* 4 Carpenters Anthology
+* 4 Broadway Showstoppers
+* 33 Lawrence Welk Singalong Book
+
+So that's 188 songs in September. Really slowing down.
+
+## 2018-10-31
+
+* 3 loose sheets
+* 15 Robbins Hollywood #3
+* 15 Robbins Hollywood #5
+* 15 Robbins Hollywood #7
+* 14 Singin' in the Rain vocal selections
+* 5 Waitress vocal selections
+* 3 Rocky Horror (1974) vocal selections
+* 47 Rodgers and Hart Song Book
+
+So only 117 songs in October
+
+## 2018-11-28
+
+Rhythmic breakthrough: in Yolanda and then in Atchison, Topeka, Santa Fe, finally managed to play swung 8ths in the left against straight 8ths in the right!
+
+* 15 Robbins Hollywood Song Folio #5
+* 11 Robbins Hollywood Song Folio #4
+* 12 Paramount Song Folio #6
+* 34 Hit Parade Extras Broadway Shows
+* 8 Bells are Ringing vocal sel
+* 23 Remick Star Dance Folio #34
+* 31 Santly-Joy Dance Folio #2
+* 15 Robbins Hollywood Dance Folio #4
+
+## 2018-12-02
+
+So 149 songs in November.
+
+## 2018-12-09
+
+* 18 Christmas songs
+* 19 Keith Prowse #7
+* 15 Hollywood Dance Folio #14
+* 19 Mister Rogers Song Book
+
+Some of the Mr Rogers are still hard because of the weird jazz key changes and stuff
+
+## 2018-12-21
+
+* 26 Carols and Songs of Christmas
+* 15 Robbins Hollywood Dance #16
+* 25 Christmas sheets
+* 10 Christmas Songs You Love To Sing
+* 11 J Fischer and Bro
+
+Things that are still hard:
+
+* "Let it snow": Mozart-style 8va bass in intro
+* "Comin to town": music box chorus
+* "Silver bells": 8va descending intro. Chorus fills still messy too.
+* "Sleigh ride": The key changes! But a lot better than I used to be
+* "Winter wonderland": Still not great at the octave bounces, but better than I used to be
+* "I'll be home": High descending intro; not good at making the fills quiet
+* Bro: Meant for chorus, not piano, so some weird left hand stretches
+
+## 2018-12-25
+
+I should add that I've actually been playing the grace notes in Let It Snow!
+But still not swinging the 8ths right in basically anything 
+
+## 2019-01-02
+
+* 4 loose sheets (Christmas)
+* 12 Paramount #6
+* 1 Rent vocal selections. Second song has 3 sharps and weird rhythm.
+* 9 Feist dance folio 2A
+* 11 Irving Berlin Universal #29. Hard in general. Hi Gaucho is still too hard
+
+So that's 195 songs in December, and a total of 2873 songs in 2018.
