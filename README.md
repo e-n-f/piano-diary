@@ -2233,3 +2233,174 @@ What is still hard is mostly not rhythms (aside from the occasional 16th note tr
 No opportunity to play any music in DC, so that's a total of
 
 * 483 songs in January
+
+## 2018-02-24
+
+I've felt rusty ever since getting back from DC. Only just now feeling somewhat fluent again.
+
+While the family was here, Dad asked me to play Girl from Ipanema, which was terrible because I can only just barely pull it off even without performance pressure. Also Alone, which is not as hard, but I still was not solid. Kevin urged me to practice with a metronome since my tempo adherence is so bad. Not sure if that can help until my reading is better unless I just totally skip things.
+
+* 32 Donald Vaughan
+* 19 Pre-war
+* 14 Donald Vaughan
+* 37 loose sheets
+* 16 "keep"
+* 12 Paramount #6
+* 12 Army Hit Kit #8
+* 30 Universal #34
+
+## 2019-03-01
+
+* 20 loose sheets
+* 30 Gem 1942
+* 10 Dr Doolittle
+* 25 Gem 1943
+
+So that's 257 songs in February, part of which I was out of town for
+
+## 2018-03-10
+
+* 10 Wizard of Oz
+* 5 loose sheets
+* 27 Rosalind Paige
+
+## 2018-03-22
+
+* 18 Joan Brooks Ballad-Time Favorites (Red Sails, Nightingale, White Cliffs of Dover all in this folio)
+* 8 Bells are Ringing vocal selections
+* 15 Barry Wood Hit Parade of Songs
+* 40 40 French Hits of Our Times
+* 10 Rosalind Paige artist copies
+* 1 loose sheet
+
+## 2018-04-01
+
+* 30 artist copies from the latest batch
+* 6 from Scrap SF
+* 16 Queen Deluxe Anthology
+* 3 Top Hits of 1984 (with several runs through Girls Just Want To Have Fun)
+* 4 Today's Top Pops
+* 23 Yip Harburg songbook
+* 10 Armed Forces Song Folio #8
+* 5 Robbins Hollywood #2
+
+So that's 231 songs in March, for which I have no excuse
+
+## 2018-04-09
+
+* 22 loose sheets (which I called "latest batch" above, and which I for some reason labeled "3")
+
+The even more recent set of 25 I labeled "2"
+
+## 2018-04-10
+
+* 12 artist copy #3 (Al Beilin)
+
+## 2018-04-14
+
+OK so that was 34 songs in April since I was gone for most of it
+
+Tonight! Made it through a bunch of Hamilton, even What Did I Miss! Still a mess, but progress. That would be enough and History has its eyes were notably better than before.
+
+* 6 Satisfied through What Did I Miss
+
+Earlier in the month:
+
+* 20? total runs through The Glory of Love, Red Sails in the Sunset, White Cliffs of Dover, and Berkeley Square
+* 25 artist copies
+* 29 German sheets
+* 30 "keep" sheets
+* 22 artist copies
+* 9 Montana Könige des chansons
+* 40 Schlager & Chansons 20s-40s
+
+## 2018-05-22
+
+* 8 The Glory of Love, Red Sails in the Sunset, White Cliffs of Dover, and Berkeley Square again
+(from Joan Brooks Ballad-Time Favorites)
+
+* 13 loose sheets
+* 1 Ev'ryone Says I Love You
+
+* 100 Frank Sinatra centennial
+
+Fly me to the moon ostinato, Last night when we were young hands crossing, The lady is a tramp "i'm broke", My kind of town, New york new york key changes, send in the clowns still notably hard
+
+* 9 John Williams Anthology
+mostly still too hard
+
+## 2018-05-26
+
+I'm OK at this! Not perfect by any stretch, but I am downright OK. I know what I am doing.
+
+## 2018-05-27
+
+Which I say from the experience playing
+
+* 52 The Rodgers and Hammerstein Song Book
+
+minus Poor Jud, which I skipped because I still can't deal with 4 sharps, and A Real Nice Clambake, which I was making a mess of for some reason.
+
+Other things that are hard:
+
+* The intro to the Carousel Waltz
+* The left hand chord clusters in Mister Snow
+* Soliloquy, which I also made a mess of
+* The fast runs in We Kiss in the Shadows
+
+Also:
+
+* 23 loose sheets
+* 4 Joan Brooks again
+* 3 Chicago, Besame Mucho, What a Diff'rence a Day Made
+
+Ev'ryone Says I Love You used to be so hard for me to get the left hand right, but now it generally feels like a comfortable warmup
+
+## 2018-05-27
+
+How to practice sharp keys without other difficulties at the same time?
+
+* 1 Getting to Know You (vocal score) because it's in A
+* 2 Chicago (1922) in F but jumping left hand. A lot better than I used to do at it, at least
+
+## 2018-05-27
+
+* 1 Sixteen going on seventeen reprise: in E, but so many accidentals too
+
+    Take a break from Hamilton is in E
+    Hey there from the Pajama Game vocal score is in Gb
+    Hey there reprise is in B
+    Nothing Like a Dame in South Pacific vocal score is in A
+    Wash that Man in South Pacific vocal score is in E
+
+* 1 The Rainbow Connection starts in A
+
+   Gary Indiana is in Ab
+   Rocky Horror (2000): Time Warp in A, Sweet Transvestite in E, 
+
+1 hour and 3 minutes of trying to play in E: All My Loving, And Your Bird Can Sing, and starting Ask Me Why. So that probably counts as
+
+* 15? Beatles songs in E
+
+## 2018-05-28
+
+I had it in my mind that Nature Boy was hard, but it's not. Turns out it's because the version in the Nat King Cole Unforgettable folio has 3 sharps and lots of 16th note ornaments. The loose sheet pop version has 1 sharp and is fine.
+
+## 2018-06-03
+
+* 8 Joan Brooks
+* 1 Beethoven #5
+* 7 "keep"
+* 3 loose sheets
+
+So that's 433 songs in May
+
+And I am feeling pretty good about myself, aside from known deficiencies:
+
+* 3 and 4 sharps (or more)
+* big left hand clusters
+* what *is* the tempo supposed to be for a rolled chord, for a trill, for tremolo? A fraction of the note value? A fraction of the time signature? As fast as you can do it?
+* grace notes, which I am still generally ignoring
+* swung 8ths, which I am generally still playing straight
+
+
