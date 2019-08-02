@@ -2513,9 +2513,9 @@ So that's 236 songs in July. Surely there should have been more?
 
 ## 2018-08-19
 
-1 Ev'ryone says I love you
-10 Old Mac Donald Had A Farm
-29 Irving Berlin Universal #32
+* 1 Ev'ryone says I love you
+* 10 Old Mac Donald Had A Farm
+* 29 Irving Berlin Universal #32
 
 a lot of which is hard, but not, I think, as hard as some of the other years?
 
