@@ -2649,3 +2649,262 @@ But still not swinging the 8ths right in basically anything
 * 11 Irving Berlin Universal #29. Hard in general. Hi Gaucho is still too hard
 
 So that's 195 songs in December, and a total of 2873 songs in 2018.
+
+## 2019-01-02
+
+* 11 Frank Sinatra's hits on parade
+* 6 Song of Norway vocal selection
+* 9 loose sheets (Donald Vaughan)
+* 11 Hamilton vocal selections
+* 8 Armed Forces Song Folio Oct 1963
+* 47 loose sheets (Donald Vaughan)
+* 4 Joan Brooks
+* 75 Good Old Timers
+* 14 photocopy sheets
+
+Song of Norway is tricky because it's classical adaptations so the harmonies and progressions are weird
+What'd I Miss is still nigh-unplayable for me
+
+So that's 185 songs in January
+
+## 2019-02-28
+
+* 7 Armed Forces Song Folio #8
+
+* 13 World Charts presents the Italian Songbook
+Mattinata is too hard
+
+* 8 Armed Forces Sep 1955
+* 8 Feb 1955
+* 8 Dec 1957
+* 8 Jul 1951
+* 12 Paramount #8
+* 25 loose sheets
+* 19 loose sheets
+* 4 Joan Brooks
+* 14 loose sheets
+* 16 Fantasia
+* 45 45 hits of our time from Italy
+
+For a total of 187 songs in February
+
+## 2019-03-05
+
+* 22 loose sheets
+* 8 Armed Forces Song Folio, Jan 1963 
+
+## 2019-03-27
+
+* 4 Chicago, The Look of Love, Alexander's Clarinet, left my heart in SF
+
+## 2019-03-31
+
+* 15 Robbins Hollywood Dance #12
+* 19 Warner Bros Song Folio 2nd Ed (depending on how you count the medleys)
+* 16 Robbins Hollywood #14
+* 12 Paramount #6
+* 4 Joan Brooks
+* 18 loose sheets
+* 5? Hamilton
+* 13 Gem 1942
+
+For a total of 136 songs in March
+I'm really slipping, even though we were gone for a week and a half of it
+
+## 2019-04-07
+
+* 3 Gymnopedies
+* 4 loose sheets
+* 12 De Sylva Brown and Harrison
+
+You're the cream in my coffee is still very hard, as is the intro to Varsity Drag
+
+* 14 Robbins Hollywood #10
+* 15 Robbins Hollywood #8
+* 15 Robbins Hollywood #13 
+
+## 2019-04-08
+
+* 4 great songs of the year 1973:
+
+  * music music music
+  * space oddity
+  * whiter shade of pale
+  * you've made me so very happy
+
+* 3 supersongs of 79:
+
+  * now that we found love
+  * the gambler
+  * california dreaming
+
+## 2019-04-09
+
+* 3 queen (bohemian rhapsody, save me, don't stop me now)
+* 9 loose sheets
+
+## 2019-04-30
+
+* 14 Beatles M-Z: rain, rocky raccoon, revolution, run for your life, savoy truffle, sexy sadie, sgt pepper, she loves you, she's leaving home, she said, she's a woman, paperback writer, ps i love you, penny lane
+* 4 in Murrieta: Incredible Hulk, Brian's Song, two classical
+* 15 Robbins Hollywood Dance Folio #15
+* 15 Robbins Hollywood Dance Folio #7
+* 28 Frank Sinatra centennial
+
+## 2019-04-30
+
+* 7 loose sheets
+
+So that's 165 songs in April
+
+## 2019-05-31
+
+* 31 Leslie Bricusse (some are still kind of hard)
+* 69 Best Big Band Songs Ever
+* 40 The Forties
+* 22 loose sheets
+
+So 162 songs in May
+
+## 2019-06-15
+
+* 3 loose sheets
+* 15 Robbins Dance #6
+* 31 Irving Berlin Dance #21
+* 31 Irving Berlin Dance #30
+
+The latter is from the Irving Berlin Universal era with the harder arrangements. Still tricky in some cases but I made it through.
+
+## 2019-06-16
+
+* 36 Sesame Street Songbook (arr Oliver, 1971)
+
+Some still tricky, mostly for rhythm. (Not easy being green, especially.) Theme song bridge is really the only one with a hard key.
+
+## 2019-06-18
+
+3 Chicago, Besame Mucho
+
+I was feeling good about myself over the weekend, but last night and tonight I am a clumsy mess again. Just because I am tired? Playing the new batch of loose sheets from eBay, but also a Robbins folio that should be easy.
+
+## 2019-06-19
+
+Not great today, but better than yesterday, at least…
+
+* 3 Rock around the clock, what a difference a day made
+* 15 Robbins Hollywood #2
+* 13 loose sheets 
+
+## 2019-06-19
+
+* 10 loose sheets
+* 1 I'm looking through you
+
+Which I know well is the first song I ever actually played by ear on the piano, as opposed to just playing the chords. But I've never actually played the authorized 2nd edition arrangement of it before, and it's weird how different it is from my headcanon.
+
+## 2019-06-20
+
+* 19 loose sheets
+* 1 what a difference a day made
+
+and what a difference indeed: I am solid tonight 
+
+## 2019-06-22
+
+* 2 what a difference, rock around the clock
+* 1 everyone says i love you
+* 1 loose sheet
+* 4 armed forces song folio xxxvi: i write the songs, hill street blues, wkrp, call me
+
+## 2019-06-30
+
+Rodgers and Hammerstein book: dissonant/chromatic things in hard keys are still bad for me. I have no idea if I was playing anywhere close to the right notes in Poor Jud. I think I was at the start of the Carousel Waltz (only 2 sharps there) but I could have been wrong and probably wouldn't know.
+
+Mister Snow is also very rough going, with jumping 4-note chords in the left hand at the same time as ledger lines in both hands.
+
+* 3 Armed Forces Song Folio (what a difference, rock around the clock, something's gotta give)
+* 26 loose sheets
+
+Chloe I can keep tempo a lot better than before
+
+Cocktails For Two I still am slow in the optional high chords
+
+Last Sunday trying to play Too Marvelous For Words I had the freaky experience of having a blind spot for the bass part in the first quarter note of the measure. My brain was filling in a blank staff unless I explicitly fixated over there. Went to the Berkeley eye clinic to make sure it was not a retina problem. They decided it was a migraine. Would it have been so blatant that something was wrong if it didn't have all those measures at the start with just the bass note and nothing in the treble?
+
+* 14 Rodgers and Hammerstein Song Book, through Soliloquy
+
+So that's 232 songs in June
+
+## 2019-07-08
+
+* 2 New York New York
+
+There are two versions: one in F going into Gb (UK), and one in D going into Eb (Italian). In either I am awkward on the ostinato in the bottom half of the right hand, but overall I think I am better at the F/Gb one than the D/Eb one, in spite of the 6 flats at the end of the former.
+
+* 2 Shine On You Crazy Diamond, Wish You Were Here
+
+Showing how bad I still am at reading rock rhythms
+
+* 41 Rodgers and Hammerstein Song Book
+
+some of the rest of which are better than others, but none really terrible
+
+* 1 What a difference a day made
+* 3 Baby Doll
+
+which I am still super sloppy at
+
+## 2019-07-10
+
+* 3 beatles complete
+* 4 beatlemania #1
+
+both so weird in their arrangements, in different ways
+
+* 2 rock around the clock
+ 
+* 33 Beatles Complete (through Can't Buy Me Love)
+
+Skipped I'll Keep You Satisfied because it has four sharps and I don't know what it's supposed to sound like. Did bumble through Please Please Me, also with four sharps.
+
+## 2019-07-14
+
+Back to Beatlemania #1:
+
+Most of it is going fine, but "It's Only Love" still just sounds like gibberish. I can read the notes and rhythms, but can't understand what they are trying to do with them
+
+* 56 Beatlemania #1
+
+Which feels like an important milestone, demonstrating that I can really read rock rhythms, and can also fight myself to play what's on the page even when I think I know the song better than the arranger.
+
+* 2 loose sheets (Yesterday, Tequila)
+
+## 2019-07-15
+
+* 17 Lennon & McCartney: A Retrospective (skipping non-Beatles songs and from Beatlemania #1)
+
+since I couldn't find Beatlemania #2
+
+Songs in E or A I'm still just bumbling through. Need to learn how to play in sharps!
+
+The Fool on the Hill is a total mess, I think mostly because they've transcribed most it in 3/4 even though it's not.
+
+## 2019-07-18
+
+Working through Beatles M-Z: Skipped Only A Northern Song because the combination of E and dissonance and weirdness is too much. I am doing downright well with most of the other key signatures. Bumbling in E, but bumbling through.
+
+* 2 Old Town Road (in Bb, not B, because B is still too much)
+
+## 2019-07-31
+
+* 86 Beatles I-Z (through Words of Love)
+* 13 Irving Berlin Universal #16
+* 15 Robbins #9
+* 3 loose sheets
+* 1 What a difference a day made
+* 23 Robbins #18
+* 2 This Loneliness https://musescore.com/user/9481/scores/5163692 plus random improv at Steph's office party
+
+So that's 311 songs in July!
+
+And way more Beatles songs than I've played in ages. Not all great by any means, but I can read rock rhythms and I can sort of play in E.
