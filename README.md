@@ -2909,3 +2909,7 @@ Working through Beatles M-Z: Skipped Only A Northern Song because the combinatio
 So that's 311 songs in July!
 
 And way more Beatles songs than I've played in ages. Not all great by any means, but I can read rock rhythms and I can sort of play in E.
+
+## 2019-08-01
+
+Strange Interlude was back on top of the stack and took 4:14 to play, so I think it's fair to say that my tempos have converged. It is a strange song, true to its title.
