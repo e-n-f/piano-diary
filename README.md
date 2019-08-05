@@ -2921,3 +2921,7 @@ Strange Interlude was back on top of the stack and took 4:14 to play, so I think
 God Save the Queen is missing! So much for songbook integrity.
 
 Sweet lady is hard because of the key
+
+* 7 Dark Side of the Moon (Breathe, Time, Breathe Reprise, Great Gig in the Sky, Brain Damage, Us and Them, Eclipse)
+
+Skipped Money because of annoying rhythm. What happened to On the Run and Any Colour You Like? These are just accompaniment, not including the melody.
