@@ -2913,3 +2913,11 @@ And way more Beatles songs than I've played in ages. Not all great by any means,
 ## 2019-08-01
 
 Strange Interlude was back on top of the stack and took 4:14 to play, so I think it's fair to say that my tempos have converged. It is a strange song, true to its title.
+
+## 2019-08-04
+
+* 11 Queen A Night at the Opera
+
+God Save the Queen is missing! So much for songbook integrity.
+
+Sweet lady is hard because of the key
