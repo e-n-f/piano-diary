@@ -2925,3 +2925,89 @@ Sweet lady is hard because of the key
 * 7 Dark Side of the Moon (Breathe, Time, Breathe Reprise, Great Gig in the Sky, Brain Damage, Us and Them, Eclipse)
 
 Skipped Money because of annoying rhythm. What happened to On the Run and Any Colour You Like? These are just accompaniment, not including the melody.
+
+## 2019-08-05
+
+* 1 Lady Gaga Bad Romance
+
+## 2019-08-16
+
+* 69 loose sheets ("keep"):
+  * My Old Flame
+    * Still a little rough
+  * Mister Sandman
+  * Button up your overcoat
+    * The E# in the refrain is still awkward
+  * I'll be seeing you
+    * Still bad at the 8va intro
+  * We'll meet again
+  * I couldn't sleep a wink last night
+  * Tiptoe through the tulips
+  * All or nothing at all
+  * Stella by starlight
+  * Poppa don't preach to me
+  * A gal in calico
+  * Red sails in the sunset
+  * Stars fell on Alabama
+  * Hello Dolly
+  * Loveless love
+    * Ornamental parts are still tricky
+  * Witch Doctor
+  * Tuxedo Junction
+    * Still slow at jumps
+  * Fly me to the moon
+  * On a clear day
+  * How high the moon
+  * Rock around the clock
+  * Heart and soul
+  * Hey there
+  * Chitty chitty bang bang
+  * Republicans our country needs you
+  * Nightingale sang in Berkeley Square
+  * Whatever will be will be
+  * Pennies from Heaven
+    * Ending still tricky
+  * My foolish heart
+  * Born free
+  * Just a little closer
+  * Perhaps perhaps perhaps
+    * A little better at the key change, but not good
+  * Who's afraid of the big bad wolf
+  * Woody woodpecker
+  * The peanut vendor
+  * Goodnight my someone
+  * The trolley song
+  * Lavender blue dilly dilly
+  * Laura
+  * Song from Moulin Rouge
+  * Chicago (1959)
+  * Blueberry Hill
+  * Homin' Time
+  * The couple in the castle
+  * Unforgettable
+  * T'ain't So Honey T'ain't so
+  * A dream is a wish your heart makes
+  * September in the rain
+  * Sierra madre
+  * Nature boy
+  * I'm a dreamer aren't we all
+  * Hold me thrill me kiss me
+  * Collegiate
+  * Gallagher and Shean
+  * Stars and stripes forever
+  * Days of wine and roses
+  * White cliffs of Dover
+  * How high the moon
+  * Glory of love
+  * Kiss the boys goodbye
+  * This is the inside story
+  * Broadway rhythm
+  * Moonglow
+  * How ya gonna keep 'em down on the farm
+  * Little Orphan Annie
+  * T'ain't So Honey T'ain't so
+  * Strange Interlude
+  * Time after time
+  * Whistle while you work
+* 31 Irving Berlin Dance Folio #32 1938
+  * From the era with harder arrangements
