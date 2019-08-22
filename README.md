@@ -3011,3 +3011,12 @@ Skipped Money because of annoying rhythm. What happened to On the Run and Any Co
   * Whistle while you work
 * 31 Irving Berlin Dance Folio #32 1938
   * From the era with harder arrangements
+
+## 2019-08-18
+
+I can read the rhythm of Girl from Ipanema now with only a little fudging,
+so that's progress
+
+## 2019-08-21
+
+* 3 Satisfied, Helpless, Old Town Road
