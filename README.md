@@ -3020,3 +3020,36 @@ so that's progress
 ## 2019-08-21
 
 * 3 Satisfied, Helpless, Old Town Road
+
+## 2019-08-27
+
+* 25 loose sheets:
+  * Twilight Time
+  * Lullaby of Broadway
+  * Wind and the rain in your hair
+  * Thanks for the memory
+  * Love and marriage
+  * Der Fuehrer's Face
+  * I want to thank your folks
+  * How much is that doggie in the window
+  * Misty
+  * Try a little tenderness
+  * Come rain or come shine
+  * San Francisco
+  * Singin' in the rain
+  * Deep in the heart of Texas
+  * Shaft
+  * Stairway to Heaven
+  * Girl from Ipanema (which I'm pretty close to getting right now)
+  * Seventh Heaven
+  * Little Pal
+  * What a difference a day made
+  * Just a gigolo
+  * Perhaps perhaps perhaps (key change still difficult)
+  * Awful lot of coffee in Brazil
+  * Swinging on a star
+  * Alone
+* 31 Irving Berlin Universal #14 (1928)
+* 16 Hill and Range #3
+* 30 Irving Berlin Universal #34 (1940-1941)
+  * Do Ye John Peel is a mess
