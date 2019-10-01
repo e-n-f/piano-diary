@@ -3059,3 +3059,106 @@ so that's progress
 * 15 Robbins Hollywood #12
 
 So that's **239** songs in August
+
+## 2019-09-30
+
+What did I play at my parents'? At least:
+
+* 7 songs:
+  * Hotel California
+  * Flight of the Sorcerer
+  * Why am I so romantic?
+  * The Alley Cat Song
+  * and I think 3 others from the hits of the 40s book
+
+And here:
+
+* 81 loose sheets:
+  * Casino Royale
+  * The Entertainer
+  * Andy Griffith
+  * Little Orphan Annie (1931)
+  * It's a woman's world
+  * Makin love ukulele style
+  * Groovy kind of love
+  * America calling
+  * Alexander's ragtime band (1911)
+  * Holiday for stringd
+  * Things we did last summer
+  * Sweetheart of sigma chi
+  * Everyone says I love you
+  * Brazil
+  * Sunshine
+  * b/w Je Vous Aime
+  * Vict'ry polka
+  * What do you want to make those eyes at me for
+  * With these hands
+  * Mary's a grand old name
+  * It is no secret
+  * Spring wil be a little late this year
+  * A toast to the flag
+  * I believe in miracles (1956)
+  * Hail to you legion men
+  * Hop scotch polka
+  * Weary
+  * There must be a way
+  * Together
+  * Daddy's little girl
+  * Behind those swinging doors
+  * Lili Marlene
+  * Count every star
+  * Let's take the long way home
+  * The whole world is singing my song
+  * Forever and ever
+  * Sweetheart of all my dreams
+  * America I love you
+  * Golden Earrings
+  * Love thy neighbor
+  * If my people
+  * One more tomorrow
+  * I'm glad I waited for you
+  * I'll always be in love with you
+  * A lane in Spain
+  * Sally in our alley
+  * Mammy's little sunny honey boy
+  * Lonesome lover
+  * You can't beat us if it takes ten million more
+  * Sometime
+  * Londonderry air
+  * Happy birthday
+  * Way down in Alabama
+  * Sometimes I'm happy
+  * A day in the life of a fool
+  * When I fall in love
+  * Misirlou
+  * I simply adore you
+  * Ev'ry night about this time
+  * Answer saying that you love me
+  * The end of a love affair
+  * Moonlight on the Danube
+  * b/w Moonlit Waters
+  * Golden Gate
+  * b/w Back in your own back yard
+  * When
+  * b/w Whisper sweet and whisper low
+  * Lovely little silhouette
+  * b/w I've been longing for a girl like you
+  * Four Walls
+  * b/w Mary Anne
+  * Changes
+  * b/w What are you waiting for Mary
+  * Bluesette
+  * The great pretender
+  * You don't know how lucky you are
+  * A taste of honey
+  * Just come home
+  * Jesu joy of man's desiring
+  * Sail on silv'ry moon
+  * Is there still room for me neath the old apple tree
+
+* 31 Irving Berlin Universal #7
+* 31 Irving Berlin Universal #15
+* 19 De Sylva Brown Henderson Supreme #3
+* 17 Ray Charles anthology
+
+So that's **186** songs in September.
