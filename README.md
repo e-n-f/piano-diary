@@ -3162,3 +3162,10 @@ And here:
 * 17 Ray Charles anthology
 
 So that's **186** songs in September.
+
+## 2019-11-01
+
+* 30 Feist Dance Folio 2A
+* 72 The Library of Jazz Standards
+
+So that's **102** songs in October.
