@@ -3169,3 +3169,9 @@ So that's **186** songs in September.
 * 72 The Library of Jazz Standards
 
 So that's **102** songs in October.
+
+## 2019-11-10
+
+* 15 Robbins Hollywood Dance #4
+* 15 Robbins Hollywood Dance #10
+* 4 Armed Forces Song Folio #9
