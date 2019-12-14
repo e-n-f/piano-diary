@@ -3184,3 +3184,13 @@ So that's **102** songs in October.
 ## 2019-11-27
 
 * 15 Robbins Hollywood Dance #17
+
+## 2019-12-14
+
+I still can't play the intro to Silver Bells properly, and have to play the ornaments in the chorus from memory instead of really reading them.
+
+I am better than last year, but not great, at the key change in Sleigh Ride.
+
+* 15 Christmas songs
+* 12 loose sheets
+* 15 Robbins Hollywood #5
