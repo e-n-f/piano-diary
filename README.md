@@ -3185,6 +3185,8 @@ So that's **102** songs in October.
 
 * 15 Robbins Hollywood Dance #17
 
+So that's **152** songs in November
+
 ## 2019-12-14
 
 I still can't play the intro to Silver Bells properly, and have to play the ornaments in the chorus from memory instead of really reading them.
@@ -3194,3 +3196,18 @@ I am better than last year, but not great, at the key change in Sleigh Ride.
 * 15 Christmas songs
 * 12 loose sheets
 * 15 Robbins Hollywood #5
+
+## 2019-12
+
+That was all the access I had to a piano in December.
+
+So that's **42** songs in December
+
+## 2020-01-26
+
+* 4 Stars fell on Alabama/Chicago
+* 3 loose sheets
+* 12 Frank Sinatra's Hits on Parade
+* 14 Annie vocal selections
+* 8 Christmas songs
+* 4 Satie Gymnopedies/Gnossienne
