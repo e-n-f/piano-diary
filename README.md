@@ -3211,3 +3211,12 @@ So that's **42** songs in December
 * 14 Annie vocal selections
 * 8 Christmas songs
 * 4 Satie Gymnopedies/Gnossienne
+
+## 2020-02-01
+
+* 10 loose sheets
+* 2 Feist folio 2A
+* 3 46 Contemporary Piano Solos
+* 2 Songs by Singapore Composers
+
+So that's **62** songs in January
