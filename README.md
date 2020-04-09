@@ -3242,3 +3242,8 @@ So that's **60** songs in February
 * 9 loose sheets (artist copies, all today)
 
 So that's **68** songs in March. Away for 11 days of it, but then home every day afterward for social distancing.
+
+## 2020-04-09
+
+* 19 loose sheets ("keep")
+* 12 loose sheets (artist copies)
