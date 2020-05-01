@@ -3252,3 +3252,9 @@ So that's **68** songs in March. Away for 11 days of it, but then home every day
 
 * 12 loose sheets (artist copies)
 * 25 loose sheets ("keep")
+
+## 2020-04-30
+
+* 25 loose sheets ("keep")
+
+So that's **93** songs in April
