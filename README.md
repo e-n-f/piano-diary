@@ -3279,3 +3279,7 @@ So that's **93** songs in April
 ## 2020-05-11
 
 * 5 loose sheets (artist copies) today
+
+## 2020-05-12
+
+* 7 loose sheets (artist copies) today
