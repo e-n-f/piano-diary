@@ -3289,3 +3289,10 @@ So that's **93** songs in April
 * 6 loose sheeets ("keep") today
 
 Sloppy playing. Tired? Something messing with proprioception?
+
+## 2020-05-14
+
+* 6 loose sheets ("keep") today
+
+There is something bothering my right eye so I was not playing
+super well.
