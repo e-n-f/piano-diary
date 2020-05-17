@@ -3296,3 +3296,7 @@ Sloppy playing. Tired? Something messing with proprioception?
 
 There is something bothering my right eye so I was not playing
 super well.
+
+## 2020-05-15
+
+* 5 loose sheets (artist copies) today
