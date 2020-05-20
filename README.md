@@ -3308,3 +3308,7 @@ super well.
 ## 2020-05-17
 
 * 7 loose sheets ("keep") today
+
+## 2020-05-18
+
+* 3 loose sheets (artist copies) today
