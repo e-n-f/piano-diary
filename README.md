@@ -3340,3 +3340,12 @@ super well.
 ## 2020-05-28
 
 * 7 loose sheets
+
+## 2020-05-30
+
+* 13 sesame street songbook 1971 (through people in your neighborhood)
+* 5 loose sheets
+
+## 2020-06-01
+
+So that's **137** songs in May
