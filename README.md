@@ -3349,3 +3349,11 @@ super well.
 ## 2020-06-01
 
 So that's **137** songs in May
+
+## 2020-06-02
+
+* 1 T'ain't So
+
+## 2020-06-03
+
+* 7 loose sheets
