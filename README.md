@@ -3354,6 +3354,18 @@ So that's **137** songs in May
 
 * 1 T'ain't So
 
+This was the first time I can remember being able to sing along
+while simultaneously reading music (as opposed to just playing
+a chords under the sung melody).
+
 ## 2020-06-03
 
 * 7 loose sheets
+
+## 2020-06-04
+
+* 1 couple in the castle
+
+## 2020-06-05
+
+* 2 t'ain't so, where you lead
