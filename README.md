@@ -3369,3 +3369,48 @@ a chords under the sung melody).
 ## 2020-06-05
 
 * 2 t'ain't so, where you lead
+
+## 2020-06-06
+
+* 3 loose sheets
+
+## 2020-06-07
+
+* 2 loose sheets
+
+## 2020-06-09
+
+* 6 loose sheets
+
+## 2020-06-10
+
+* 2 back home again in indiana
+
+## 2020-06-11
+
+* 3 loose sheets
+
+## 2020-06-12
+
+* 4 loose sheets
+
+## 2020-06-13
+
+* 2 loose sheets
+
+## 2020-06-14
+
+* 10 loose sheets
+
+I still am not fabulous at Fur Elise, but a lot better than I used to be
+
+Added The Fishing Hole and Ev'ryone Says I Love You to the standard
+rotation recently.
+
+## 2020-06-15
+
+* 7 loose sheets
+
+## 2020-06-16
+
+* 1 Heart and Soul
