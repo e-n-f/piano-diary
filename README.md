@@ -3414,3 +3414,19 @@ rotation recently.
 ## 2020-06-16
 
 * 1 Heart and Soul
+
+## 2020-06-18
+
+* 9 loose sheets (incl 3 arrangements of I Love Lucy)
+
+## 2020-06-19
+
+* 7 loose sheets
+
+## 2020-06-20
+
+* 2 loose sheets
+
+## 2020-06-21
+
+* 11 loose sheets
