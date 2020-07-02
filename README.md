@@ -3437,3 +3437,23 @@ rotation recently.
 
 Steph is officially tired of hearing The Fishing Hole
 and is glad to hear me trying Linus and Lucy instead.
+
+## 2020-06-25
+
+* 8 loose sheets
+
+Still bad at Linus and Lucy, but Steph likes it
+
+## 2020-06-27
+
+* 1 loose sheet
+
+## 2020-06-28
+
+* 16 loose sheets
+
+## 2020-06-30
+
+* 4 loose sheets
+
+So that's **113** songs in June.
