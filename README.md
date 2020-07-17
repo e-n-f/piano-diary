@@ -3457,3 +3457,52 @@ Still bad at Linus and Lucy, but Steph likes it
 * 4 loose sheets
 
 So that's **113** songs in June.
+
+## 2020-07-02
+
+* 7 loose sheets
+
+## 2020-07-03
+
+* 7 loose sheets
+
+I am finally actually reading/playing swung 8ths and straight 8ths
+differently. I wonder if I can keep it up or if I will get
+sloppy again.
+
+## 2020-07-04
+
+* 5 loose sheets
+
+## 2020-07-05
+
+Having a harder time respecting swing in Ev'ryone Says I Love You.
+I think the trick is that I have to start moving my left hand earlier
+because the 16th note of the 2nd half of the swing doesn't leave as
+much time to get in place for the next beat.
+
+## 2020-07-06
+
+* 3 loose sheets
+
+## 2020-07-07
+
+* 3 loose sheets
+
+## 2020-07-08
+
+* 3 loose sheets
+
+## 2020-07-11
+
+* 2 loose sheets
+
+## 2020-07-14
+
+* 1 T'ain't So
+
+## 2020-07-15
+
+* 9 loose sheets
+
+Not swinging so well today
