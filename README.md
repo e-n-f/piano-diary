@@ -3506,3 +3506,11 @@ much time to get in place for the next beat.
 * 9 loose sheets
 
 Not swinging so well today
+
+## 2020-07-17
+
+* 2 loose sheets
+
+## 2020-07-18
+
+* 7 loose sheets
