@@ -3514,3 +3514,27 @@ Not swinging so well today
 ## 2020-07-18
 
 * 7 loose sheets
+
+## 2020-07-19
+
+* 1 Indiana (1917 arr)
+
+## 2020-07-21
+
+* 7 loose sheets
+
+## 2020-07-24
+
+* 2 loose sheets
+
+## 2020-07-25
+
+* 2 loose sheets
+
+## 2020-07-26
+
+* 9 loose sheets
+
+## 2020-07-27
+
+* 9 loose sheets
