@@ -3537,4 +3537,22 @@ Not swinging so well today
 
 ## 2020-07-27
 
-* 9 loose sheets
+* 9 loose sheets (new artist copies)
+
+## 2020-07-28
+
+* 8 loose sheets (new artist copies)
+
+## 2020-07-29
+
+* 1 loose sheet
+
+## 2020-07-30
+
+* 3 loose sheets
+
+## 2020-07-31
+
+* 11 artist copies
+
+So that's **102** songs in July
