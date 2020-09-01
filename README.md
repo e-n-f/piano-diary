@@ -3556,3 +3556,42 @@ Not swinging so well today
 * 11 artist copies
 
 So that's **102** songs in July
+
+## 2020-08-02
+
+* 8 loose sheets
+
+## 2020-08-04
+
+* 5 loose sheets
+
+## 2020-08-05
+
+* 3 loose sheets
+
+## 2020-08-1x
+
+* 4 loose sheets
+
+## 2020-08-18
+
+* 5 loose sheets
+
+## 2020-08-21
+
+* T'aint so
+
+## 2020-08-??
+
+* 7 loose sheets
+
+## 2020-08-31
+
+* 7 loose sheets
+
+So that's **40** songs in August, which is terrible, even knowing
+that I was away from any pianos for a week in there.
+
+At the same time, I *can* sit down and play things just fine after
+a gap of a week or more, so I guess I am competent even if I am
+not actually doing it.
