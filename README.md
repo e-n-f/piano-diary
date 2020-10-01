@@ -3595,3 +3595,67 @@ that I was away from any pianos for a week in there.
 At the same time, I *can* sit down and play things just fine after
 a gap of a week or more, so I guess I am competent even if I am
 not actually doing it.
+
+## 2020-09-01
+
+* 6 loose sheets
+
+## 2020-09-02
+
+* 2 loose sheets
+
+## 2020-09-03
+
+* 4 loose sheets
+
+Left My Heart in SF is still extremely clumsy
+
+## 2020-09-09?
+
+* 3 loose sheets, another try at Left My Heart
+
+## 2020-09-10?
+
+* 7 loose sheets
+
+## 2020-09-11
+
+* 5 loose sheets
+
+## 2020-09-13
+
+* 7 loose sheets
+
+## 2020-09-15
+
+* 4 loose sheets
+
+## 2020-09-20?
+
+* 3 loose sheets
+
+## 2020-09-25
+
+* 5 loose sheets
+
+## 2020-09-26
+
+* 3 loose sheets
+
+## 2020-09-28
+
+* 2
+
+## 2020-09-29
+
+* 5
+
+## 2020-09-30
+
+* 2
+
+## 2020-09-31
+
+* 2
+
+So that's **60** songs in September.
