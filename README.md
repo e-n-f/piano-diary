@@ -3659,3 +3659,13 @@ Left My Heart in SF is still extremely clumsy
 * 2
 
 So that's **60** songs in September.
+
+## 2020-10-22
+
+* 16 loose sheets (not actually today; all month)
+
+## 2020-10-31
+
+* 7 loose sheets
+
+So that's **23** songs in all of October, alas.
