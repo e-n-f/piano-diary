@@ -3669,3 +3669,13 @@ So that's **60** songs in September.
 * 7 loose sheets
 
 So that's **23** songs in all of October, alas.
+
+## 2020-11-30
+
+* 15 Christmas songs
+* 8 Armed Forces Song Folio Jan 1963
+* 8 Armed Forces Song Folio Jul 1951
+* 15 Robbins Hollywood #17
+* 10 loose sheets
+
+So that's **56** songs in November
