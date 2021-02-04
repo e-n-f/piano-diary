@@ -3679,3 +3679,19 @@ So that's **23** songs in all of October, alas.
 * 10 loose sheets
 
 So that's **56** songs in November
+
+## 2020-12-16
+
+* 10 Christmas songs
+
+## 2020-12-26
+
+* 8 Christmas songs
+
+So that's **18** songs in December
+
+## 2021-01-31
+
+* 10 loose sheets
+
+For a total of **10** songs in January
